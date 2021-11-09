@@ -12,7 +12,6 @@ https://www.facebook.com/festivaldeziluze/videos/826488261611313
 
 # FESTIVAL DEZILUZE
 
-![Dezi21-merch-trika](https://user-images.githubusercontent.com/79570985/140935753-22ad0497-dbfd-4e8c-bdfd-4a1e93870d32.jpg)
 ![Dezi-nohy](https://user-images.githubusercontent.com/79570985/140935776-a9d19b79-01f2-42d3-80d4-de6397e6e742.jpg)
 https://www.instagram.com/p/CNP4nL2hf-v/
 
@@ -21,6 +20,7 @@ https://www.facebook.com/events/921462378616503/?acontext=%7B%22event_action_his
 ![Dezi21-nalepky](https://user-images.githubusercontent.com/79570985/140935764-d6e46825-a725-4fa4-a67b-419f9c06de5d.jpg)
 <img width="960" alt="Dezi21-merch-placky" src="https://user-images.githubusercontent.com/79570985/140935433-0aa84691-465e-454c-b102-0fd751a5f84a.png">
 ![Dezi21-merch-karty](https://user-images.githubusercontent.com/79570985/140935743-f1d2588b-ab4c-4a20-8ced-5bf991d9bd66.jpg)
+![Dezi21-merch-trika](https://user-images.githubusercontent.com/79570985/140935753-22ad0497-dbfd-4e8c-bdfd-4a1e93870d32.jpg)
 
 
 # CHAMPS DEZILUZEÉ
