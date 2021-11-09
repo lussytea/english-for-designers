@@ -12,13 +12,17 @@ https://www.facebook.com/festivaldeziluze/videos/826488261611313
 
 # FESTIVAL DEZILUZE
 
+![6D2B02AC-621E-4EC5-9954-20A4902A899B-3917-0000014C576D861A](https://user-images.githubusercontent.com/79570985/140943201-b1da9d7a-6e31-4fbd-b6ce-f863fbde52c4.jpg)
+![39ED80EE-0EA8-4C65-8C0A-AF9FD01766AE-3917-0000014C8AEA3168](https://user-images.githubusercontent.com/79570985/140943328-2923b36d-2552-4f65-b160-e1d3e1e17ded.jpg)
+![Dezi21-nalepky](https://user-images.githubusercontent.com/79570985/140935764-d6e46825-a725-4fa4-a67b-419f9c06de5d.jpg)
+<img width="960" alt="Dezi21-merch-placky" src="https://user-images.githubusercontent.com/79570985/140935433-0aa84691-465e-454c-b102-0fd751a5f84a.png">
+
 ![Dezi-nohy](https://user-images.githubusercontent.com/79570985/140935776-a9d19b79-01f2-42d3-80d4-de6397e6e742.jpg)
 https://www.instagram.com/p/CNP4nL2hf-v/
 
 https://www.facebook.com/events/921462378616503/?acontext=%7B%22event_action_history%22%3A[%7B%22mechanism%22%3A%22search_results%22%2C%22surface%22%3A%22search%22%7D]%2C%22ref_notif_type%22%3Anull%7D
 
-![Dezi21-nalepky](https://user-images.githubusercontent.com/79570985/140935764-d6e46825-a725-4fa4-a67b-419f9c06de5d.jpg)
-<img width="960" alt="Dezi21-merch-placky" src="https://user-images.githubusercontent.com/79570985/140935433-0aa84691-465e-454c-b102-0fd751a5f84a.png">
+
 ![Dezi21-merch-karty](https://user-images.githubusercontent.com/79570985/140935743-f1d2588b-ab4c-4a20-8ced-5bf991d9bd66.jpg)
 ![Dezi21-merch-trika](https://user-images.githubusercontent.com/79570985/140935753-22ad0497-dbfd-4e8c-bdfd-4a1e93870d32.jpg)
 
