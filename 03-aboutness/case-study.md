@@ -11,11 +11,9 @@
 
 ##### And I still didn’t have Facebook so I didn’t answer again. So she called me and said: 
 
-#####  M: 
-##### Hey Lucy, why are you ignoring me? I wrote you on messenger many times! :(((
+### *M: Hey Lucy, why are you ignoring me? I wrote you on messenger many times! :(((*
 
-#####  L: 
-##### Oh Mari! I am sorry, I deactivated my Facebook but maybe I forgot to deactivate messenger, but I am not using it. So trust me! I am not ignoring you! Tell me, what did you wrote me?
+###  *L: Oh Mari! I am sorry, I deactivated my Facebook but maybe I forgot to deactivate messenger, but I am not using it. So trust me! I am not ignoring you! Tell me, what did you wrote me?*
 
 ![arrows](https://user-images.githubusercontent.com/79570985/142947441-ff02e287-0d26-4d31-a245-f4b8a59eadde.png)
 
@@ -46,7 +44,7 @@
 
 ![DeziKoleda-reminder](https://user-images.githubusercontent.com/79570985/142790772-2152f023-d076-4e8b-8cd4-23c1a9a95a07.jpg)
 
-##### * my mother asked me everyday what I want for Christmas, and I everyday forgot to wrote to her so I had to make I reminder.
+##### **my mother asked me everyday what I want for Christmas, and I everyday forgot to wrote to her so I had to make I reminder.*
 
 # HEUREEEEEEEEEEEEKAAAAAAAAAAAAAAAAAAAAAAAA! 
 ##### This is it! The children letters to Baby Jesus!
