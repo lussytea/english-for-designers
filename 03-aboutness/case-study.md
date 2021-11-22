@@ -33,8 +33,9 @@ Keywords:
 
 A I add to myself: 
 
-To project the visual style of the festival ((sample))
-To use brand colors ((sample brand colors))
+To project the visual style of the festival. Such a color, motives, typography and drawing style.
+
+![brandcolors](https://user-images.githubusercontent.com/79570985/142945113-e02522d8-57aa-496b-91b8-52e299ece325.png)
 
 I began tu thinking about it and lay the important question to myself: WHAT DOES THE CHRISTMAS MEAN TO ME? WHATS TYPICAL FOR THE CZECH CHRISTMAS? 
 
