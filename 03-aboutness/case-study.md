@@ -35,7 +35,7 @@ A I add to myself:
 
 To project the visual style of the festival. Such a color, motives, typography and drawing style.
 
-![brandcolors](https://user-images.githubusercontent.com/79570985/142945113-e02522d8-57aa-496b-91b8-52e299ece325.png)
+![brandcolors](https://user-images.githubusercontent.com/79570985/142945541-1b0e240c-c86c-4c73-afb1-e9de992f1eff.png)
 
 I began tu thinking about it and lay the important question to myself: WHAT DOES THE CHRISTMAS MEAN TO ME? WHATS TYPICAL FOR THE CZECH CHRISTMAS? 
 
