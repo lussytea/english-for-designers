@@ -46,7 +46,8 @@ I began tu thinking about it and lay the important question to myself: WHAT DOES
 
 HEUREEEEKAAAAAA! This is it! The children letters to Baby Jesus!
 
-(((OBRÁZKY DOPISŮ DĚTÍ)))
+![dopis-jeziskovi](https://user-images.githubusercontent.com/79570985/142942937-c3a5f342-915b-47f8-8394-3e6f0686a25c.jpg)
+
 
 So I made some of the letters and used them for example for FB event cover and release posts of interprets. I'll probably use them somewhere else, but I'm not done yet.
 
@@ -55,26 +56,22 @@ https://user-images.githubusercontent.com/79570985/142790811-1aac1950-711e-4ff2-
 ![DeziKoleda_interpreti-edit](https://user-images.githubusercontent.com/79570985/142791262-c54cfd59-5e96-467b-bdfb-06a5a1200a14.png)
 
 
-
 Vzbudilo to vlno kontroverzních reakcí - od sodíkových reakcí, přes pozitivní komentáře po „Jako umělecké dílo dobrý….“
 
 ![uvodka-reactions](https://user-images.githubusercontent.com/79570985/142791044-1d26f08b-69ce-49d5-82dd-e84fee40b8d8.png)
 
 
-Than I create the Christmas version of the iconic of the Deer mascot. (((OBRÁZEK JELEN BEFORE / AFTER))
+![get-a-winter-look](https://user-images.githubusercontent.com/79570985/142943004-b6addf2d-4b12-4fb3-b821-6db515bcb60e.gif)
+
+Than I create the Christmas version of the iconic of the Deer mascot. 
+
+![DeziKoleda-jelen-getawinterlook](https://user-images.githubusercontent.com/79570985/142943026-a0b51c7c-1c35-400a-ad11-ce0f32334c02.png)
 
 And the short melancholic surrealistic release animation with the hand cut snowflakes!
 
-(((FOTKA NEBO VIDEO VLOČEK))
-
-(((Animace))))
-
-
+![handmade-vlocky](https://user-images.githubusercontent.com/79570985/142943727-8002fcba-e5a2-4c87-b722-1328346bb2ff.jpg)
 
 https://user-images.githubusercontent.com/79570985/142791116-50865930-2e1d-4f29-ae36-734fed1a6308.mp4
-
-
-
 
 
 This project is still running, but current reviews are great. There are some examples: 
@@ -82,10 +79,7 @@ This project is still running, but current reviews are great. There are some exa
 ![dezikoleda-reviews](https://user-images.githubusercontent.com/79570985/142790909-f74e0a5e-b8c3-4b70-b354-e9532f9faf18.png)
 
 
-
 Thank you and see you in Příbram! Merry Christmas! 
-
-
 
 
 Note: Use Markdown for headings, paragraphs, lists, quotes, images, etc., to add structural meaning to your content.
