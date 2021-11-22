@@ -4,7 +4,7 @@
 
 A concise, single sentence about yourself as a designer (aim for about 100 characers).
 
-- [View Selected Case Study](case-study.md) <!-- A link to your case study -->
+- [Take a look at my current project](case-study.md) <!-- A link to your case study -->
 
 ## My Story
 
