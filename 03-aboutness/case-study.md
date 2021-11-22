@@ -66,10 +66,9 @@ Vzbudilo to vlno kontroverzních reakcí - od sodíkových reakcí, přes poziti
 
 ![uvodka-reactions](https://user-images.githubusercontent.com/79570985/142791044-1d26f08b-69ce-49d5-82dd-e84fee40b8d8.png)
 
+![handmade-vlocky](https://user-images.githubusercontent.com/79570985/142943727-8002fcba-e5a2-4c87-b722-1328346bb2ff.jpg)
 
 And the short melancholic surrealistic release animation with the hand cut snowflakes!
-
-![handmade-vlocky](https://user-images.githubusercontent.com/79570985/142943727-8002fcba-e5a2-4c87-b722-1328346bb2ff.jpg)
 
 https://user-images.githubusercontent.com/79570985/142791116-50865930-2e1d-4f29-ae36-734fed1a6308.mp4
 
