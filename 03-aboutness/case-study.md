@@ -1,22 +1,19 @@
 # Dezi Dezi Koleda
 
-Once upon a time:
-
-The story began when Marianna, the head of organization team of Deziluze Festival, wrote me:
+### The story began when Marianna, the head of organization team of Deziluze Festival, wrote me:
 
 ![mari-chat1](https://user-images.githubusercontent.com/79570985/142790559-d5f70208-f9c2-4e76-8427-6b2e40307238.png)
 
-And I didn’t have Facebook at that time so I didn’t answer. So she wrote me again:
+### And I didn’t have Facebook at that time so I didn’t answer. So she wrote me again:
 
 ![mari-chat2-1](https://user-images.githubusercontent.com/79570985/142791170-6b5fa54b-de49-452e-b764-52fa7f9e4bde.png)
 
 
-And I still didn’t have Facebook so I didn’t answer again. 
+### And I still didn’t have Facebook so I didn’t answer again. 
+### So she called me and said: 
 
-So she called me and said: 
-
-M: Hey Lucy, why are you ignoring me? I wrote you on messenger many times! :(((
-L: Ooooh Mari! I am sorry, I deactivated my Facebook but maybe I forgot to deactivate messenger, but I am not using it. So trust me! I am not ignoring you! Tell me, what did you wrote me?
+# M: Hey Lucy, why are you ignoring me? I wrote you on messenger many times! :(((
+# L: Ooooh Mari! I am sorry, I deactivated my Facebook but maybe I forgot to deactivate messenger, but I am not using it. So trust me! I am not ignoring you! Tell me, what did you wrote me?
 
 THE TASK: 
 
