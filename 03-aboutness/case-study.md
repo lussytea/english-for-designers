@@ -48,6 +48,12 @@ HEUREEEEKAAAAAA! This is it! The children letters to Baby Jesus!
 
 ![dopis-jeziskovi](https://user-images.githubusercontent.com/79570985/142942937-c3a5f342-915b-47f8-8394-3e6f0686a25c.jpg)
 
+![get-a-winter-look](https://user-images.githubusercontent.com/79570985/142943004-b6addf2d-4b12-4fb3-b821-6db515bcb60e.gif)
+
+Than I create the Christmas version of the iconic of the Deer mascot. 
+
+![DeziKoleda-jelen-getawinterlook](https://user-images.githubusercontent.com/79570985/142943026-a0b51c7c-1c35-400a-ad11-ce0f32334c02.png)
+
 
 So I made some of the letters and used them for example for FB event cover and release posts of interprets. I'll probably use them somewhere else, but I'm not done yet.
 
@@ -60,12 +66,6 @@ Vzbudilo to vlno kontroverzních reakcí - od sodíkových reakcí, přes poziti
 
 ![uvodka-reactions](https://user-images.githubusercontent.com/79570985/142791044-1d26f08b-69ce-49d5-82dd-e84fee40b8d8.png)
 
-
-![get-a-winter-look](https://user-images.githubusercontent.com/79570985/142943004-b6addf2d-4b12-4fb3-b821-6db515bcb60e.gif)
-
-Than I create the Christmas version of the iconic of the Deer mascot. 
-
-![DeziKoleda-jelen-getawinterlook](https://user-images.githubusercontent.com/79570985/142943026-a0b51c7c-1c35-400a-ad11-ce0f32334c02.png)
 
 And the short melancholic surrealistic release animation with the hand cut snowflakes!
 
