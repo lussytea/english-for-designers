@@ -23,19 +23,19 @@
 ### Graphics for Christmas event by Deziluze Festival
 
 ##### Date: 
-## 3.12.2021
+### 3.12.2021
 ##### Place: 
-## Pojistka Club, Příbram 
+### Pojistka Club, Příbram 
 ##### Interprets: 
-## Young Havel, Pokoj 25, Cringe Prince, Meli, Frain Breeze, Anhum
+### Young Havel, Pokoj 25, Cringe Prince, Meli, Frain Breeze, Anhum
 ##### Formats: 
-## FB event cover, FB page cover, Release post, interpret release posts and other posts for social network
+### FB event cover, FB page cover, Release post, interpret release posts and other posts for social network
 
 ##### Keywords: 
-## #christmas #cheesy
+### #christmas #cheesy
 
 ##### And I add to myself: 
-## To project the visual style of the festival. Such a color, motives, typography and drawing style.
+### To project the visual style of the festival. Such a color, motives, typography and drawing style.
 
 ![brandcolors](https://user-images.githubusercontent.com/79570985/142945541-1b0e240c-c86c-4c73-afb1-e9de992f1eff.png)
 
