@@ -1,5 +1,13 @@
-# THE TYPE AS A PLAYING FIELD
-![The letters O and X made of square paper serving as a playing area for the five-in-a-row game. The choice of characters are inspirited by the circle and cross symbols  commonly used in this game.](img/Letters-X-O-Tycova.jpg)
-**Alt text:** The letters O and X made of square paper serving as a playing area for the five-in-a-row game. The choice of characters are inspirited by the circle and cross symbols  commonly used in this game.  
+# Your Name
 
-*Interactive type*, Lucie L. Tycova, Adobe PS & handwritting. 
+## About Me
+
+A concise, single sentence about yourself as a designer (aim for about 100 characers).
+
+- [View Selected Case Study](case-study.md) <!-- A link to your case study -->
+
+## My Story
+
+![Alt text description.](img/lsutnar-headshot.png) <! -- Maybe a photo of yourself? -->
+
+A series of short paragraphs (one to three) about who you are, beyond being a designer; a personal bio that tells your story, with an emphasis on keywords about what you do, your passions, experience, etc. Consider each paragraph as two to three short, meaningful descriptions (120 characters each). Don’t worry about length — write first — then edit for clarity and conciseness later.
