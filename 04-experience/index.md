@@ -16,4 +16,4 @@
 
 <!-- Not just software, please! See Caroline Win’s skills section: https://www.carolinewin.com/resume -->
 
-- [Download CV (PDF)](pdf/cv-2021-11-jgagne.pdf) <!-- At the top or bottom? -->
+- [Download CV (PDF)](pdf/cv-2021-11-ltycova) <!-- At the top or bottom? -->
