@@ -9,6 +9,7 @@
 ![mari-chat2-1](https://user-images.githubusercontent.com/79570985/142791170-6b5fa54b-de49-452e-b764-52fa7f9e4bde.png)
 
 
+
 ##### And I still didn’t have Facebook so I didn’t answer again. So she called me and said: 
 
 ### *M: Hey Lucy, why are you ignoring me? I wrote you on messenger many times! :(((*
@@ -40,7 +41,8 @@
 ![brandcolors](https://user-images.githubusercontent.com/79570985/142945541-1b0e240c-c86c-4c73-afb1-e9de992f1eff.png)
 
 ##### I began tu thinking about it and lay the important question to myself: WHAT DOES THE CHRISTMAS MEAN TO ME? WHATS TYPICAL FOR THE CZECH CHRISTMAS? 
-##### …and then the magic happened! My phone tinkled with the rimender!: 
+##### And then...
+### ...the magic happened! My phone tinkled with the rimender! 
 
 ![DeziKoleda-reminder](https://user-images.githubusercontent.com/79570985/142790772-2152f023-d076-4e8b-8cd4-23c1a9a95a07.jpg)
 
