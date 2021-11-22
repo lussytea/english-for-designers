@@ -61,9 +61,13 @@
 
 ##### So I made some of the letters and used them for example for FB event cover and release posts of interprets. I'll probably use them somewhere else, but I'm not done yet.
 
-![dezikoleda-jelen](https://user-images.githubusercontent.com/79570985/142950965-b6b8d0f4-b431-4f69-af99-daf396d49fa6.gif)
+![DeziKoleda-fb-event-gif](https://user-images.githubusercontent.com/79570985/142951773-c5f13179-0c56-4c6e-a785-7d7c04064c9e.gif)
 
-![DeziKoleda_interpreti-edit](https://user-images.githubusercontent.com/79570985/142791262-c54cfd59-5e96-467b-bdfb-06a5a1200a14.png)
+![DeziKoleda-cringe-prince](https://user-images.githubusercontent.com/79570985/142951876-1287a913-1435-492d-bb1e-92115ef898c6.jpg)
+
+![DeziKoleda-frainbreeze](https://user-images.githubusercontent.com/79570985/142951880-9df672dd-4445-4995-b639-139efd1e22f3.jpg)
+
+![DeziKoleda-pokoj25](https://user-images.githubusercontent.com/79570985/142951882-0245107d-3b21-4780-a7fe-82cdb54de3dd.jpg)
 
 ##### Vzbudilo to vlno kontroverzních reakcí - od sodíkových reakcí, přes pozitivní komentáře po „Jako umělecké dílo dobrý….“
 
