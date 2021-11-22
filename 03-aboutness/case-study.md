@@ -9,28 +9,30 @@
 ![mari-chat2-1](https://user-images.githubusercontent.com/79570985/142791170-6b5fa54b-de49-452e-b764-52fa7f9e4bde.png)
 
 
-### And I still didn’t have Facebook so I didn’t answer again. 
-### So she called me and said: 
+### And I still didn’t have Facebook so I didn’t answer again. So she called me and said: 
 
-# M: Hey Lucy, why are you ignoring me? I wrote you on messenger many times! :(((
-# L: Ooooh Mari! I am sorry, I deactivated my Facebook but maybe I forgot to deactivate messenger, but I am not using it. So trust me! I am not ignoring you! Tell me, what did you wrote me?
+# M: 
+# Hey Lucy, why are you ignoring me? I wrote you on messenger many times! :(((
 
-THE TASK: 
+# L: 
+# Oh Mari! I am sorry, I deactivated my Facebook but maybe I forgot to deactivate messenger, but I am not using it. So trust me! I am not ignoring you! Tell me, what did you wrote me?
 
-Graphics for Christmas event of Deziluze Festival
+![arrows](https://user-images.githubusercontent.com/79570985/142947441-ff02e287-0d26-4d31-a245-f4b8a59eadde.png)
 
-Date: 3.12.2021
-Place: Pojistka Club, Příbram 
-Interprets: Young Havel, Pokoj 25, Cringe Prince, Meli, Frain Breeze, Anhum
-Formats:
-FB event cover, FB page cover, Release post, interpret release posts and other posts for social network
+# THE BRIEF: 
 
-Keywords:
-#christmas #cheesy
+### Graphics for Christmas event of Deziluze Festival
 
-A I add to myself: 
+### Date: 3.12.2021
+### Place: Pojistka Club, Příbram 
+### Interprets: Young Havel, Pokoj 25, Cringe Prince, Meli, Frain Breeze, Anhum
+### Formats: FB event cover, FB page cover, Release post, interpret release posts and other posts for social network
 
-To project the visual style of the festival. Such a color, motives, typography and drawing style.
+### Keywords: #christmas #cheesy
+
+### A I add to myself: 
+
+### To project the visual style of the festival. Such a color, motives, typography and drawing style.
 
 ![brandcolors](https://user-images.githubusercontent.com/79570985/142945541-1b0e240c-c86c-4c73-afb1-e9de992f1eff.png)
 
