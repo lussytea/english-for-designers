@@ -52,6 +52,9 @@ So I made some of the letters and used them for example for FB event cover and r
 
 https://user-images.githubusercontent.com/79570985/142790811-1aac1950-711e-4ff2-9194-d09e90ca0dcb.mp4
 
+![DeziKoleda_interpreti-edit](https://user-images.githubusercontent.com/79570985/142791262-c54cfd59-5e96-467b-bdfb-06a5a1200a14.png)
+
+
 
 Vzbudilo to vlno kontroverzních reakcí - od sodíkových reakcí, přes pozitivní komentáře po „Jako umělecké dílo dobrý….“
 
