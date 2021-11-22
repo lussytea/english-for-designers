@@ -61,7 +61,7 @@
 
 ##### So I made some of the letters and used them for example for FB event cover and release posts of interprets. I'll probably use them somewhere else, but I'm not done yet.
 
-https://user-images.githubusercontent.com/79570985/142790811-1aac1950-711e-4ff2-9194-d09e90ca0dcb.mp4
+![dezikoleda-jelen](https://user-images.githubusercontent.com/79570985/142950965-b6b8d0f4-b431-4f69-af99-daf396d49fa6.gif)
 
 ![DeziKoleda_interpreti-edit](https://user-images.githubusercontent.com/79570985/142791262-c54cfd59-5e96-467b-bdfb-06a5a1200a14.png)
 
