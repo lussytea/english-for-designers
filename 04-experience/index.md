@@ -53,31 +53,31 @@ Graduated in Art History, Art, German, English, Czech and Literature.
 ## Skills
 
 #### Design
-Branding & Key Visuals
-Digital painting & Illustration
-Social media content creating
-Copy Writing
-Motion design & Animation 
-Mockups & Visualisation
-Video editing
+* Branding & Key Visuals
+* Digital painting & Illustration
+* Social media content creating
+* Copy Writing
+* Motion design & Animation 
+* Mockups & Visualisation
+* Video editing
 
 #### Traditional Media
-Calligraphy & Hand lettering
-Drawing (ink, coal, pencil)
-Painting  (oil, aquarell)
+* Calligraphy & Hand lettering
+* Drawing (ink, coal, pencil)
+* Painting  (oil, aquarell)
 
-#### ~
-Art direction & Project planning
-Marketing strategies
-Presentation
-Thinking in space and matter
+#### Other
+* Art direction & Project planning
+* Marketing strategies
+* Presentation
+* Thinking in space and matter
 
 ## Tools
-Photoshop
-Illustrator
-InDesign
-Premiere Pro
-After Effects
-Microsoft Office
+* Photoshop
+* Illustrator
+* InDesign
+* Premiere Pro
+* After Effects
+* Microsoft Office
 
 - [Download CV (PDF)](pdf/cv-2021-11-ltycova.pdf) <!-- At the top or bottom? -->
