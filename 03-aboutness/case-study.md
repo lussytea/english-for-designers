@@ -79,9 +79,7 @@
 
 ![handmade-vlocky](https://user-images.githubusercontent.com/79570985/142943727-8002fcba-e5a2-4c87-b722-1328346bb2ff.jpg)
 
-![Animace](https://www.youtube.com/watch?v=61vzgmsAHus&ab_channel=Lussy%27z)
-
-https://user-images.githubusercontent.com/79570985/142791116-50865930-2e1d-4f29-ae36-734fed1a6308.mp4
+![Animace Dezi Dezi Koleda](video/DeziKoleda-fbevent-kompr.mp4)
 
 ##### This project is still running, but current reviews are great. There are some examples: 
 
