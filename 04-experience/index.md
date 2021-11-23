@@ -3,6 +3,8 @@
 <!-- Name, about short decription, contact info? -->
 
 <!-- Education or Experience first? -->
+# LUCIE L. TYCOVA
+##### Graphic Designer | Prague | lucie.tyc@gmail.com | +420 739 281 172 | @lussy_tee 
 
 ## Experience
 
