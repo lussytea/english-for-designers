@@ -7,25 +7,25 @@
 ## Experience
 
 ### Freelance Graphic Designer		
-*2018–Present, Prague
+*2018–Present,* Prague
 
 Mainly focused on building brand visual identity. As well as on single graphic pieces and projects.
 
 ### Art Director & Construction Leader
 ##### Festival Deziluze	
-*2018–Present, Czech Republic	
+*2018–Present,* Czech Republic	
 
 Coordination and creation of the visual appearance of the festival. Both through graphics in the digital environment and print, as well as in the scenography of the festival area.
 
 ### Graphic Designer, Illustrator & Calligrapher in the Movie Industry 
 ##### Several different productions
-*2018–Present, Prague		
+*2018–Present,* Prague		
 
 Creating graphic props for movies and commercials. Using calligraphy and hand lettering, classical drawing, aging, traditional and digital painting (e.g. backdrops, wallpapers, paintings, posters and other illustrations)
 
 ### Production & Set Designer 
 ##### FAMU Studio, IMPRESA Films, Boogie Films, FAMUFEST, Nakaši Fest, Festival Povaleč, Pojistka Club
-*2017–present, Czech Republic		
+*2017–present,* Czech Republic		
 
 Production design of short movies & commercial sets. Scenography of festivals. Interior design concepts and its implementation.
 
@@ -37,15 +37,15 @@ Production design of short movies & commercial sets. Scenography of festivals. I
 
 ### Graphic and Media Design (BS)
 ##### University of Creative Communication
-*2019–present, Prague
+*2019–present,* Prague
 
 ### Film Development (Higher Vocational School)
 ##### Michael Academy
-*2016-2017, Prague
+*2016-2017,* Prague
 
 ### Grammar School with Graduation Exam
 ##### Gymnázium Na Zatlance
-*2012–2016, Prague
+*2012–2016,* Prague
 
 Graduated in Art History, Art, German, English, Czech and Literature.
 
