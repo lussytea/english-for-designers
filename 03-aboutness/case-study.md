@@ -79,7 +79,7 @@
 
 ![handmade-vlocky](https://user-images.githubusercontent.com/79570985/142943727-8002fcba-e5a2-4c87-b722-1328346bb2ff.jpg)
 
-![Animace Dezi Dezi Koleda](video/DeziKoleda-fbevent-kompr.mp4)
+Uploading DeziKoleda-release-motion-kompr.mp4…
 
 ##### This project is still running, but current reviews are great. There are some examples: 
 
