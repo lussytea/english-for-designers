@@ -35,8 +35,49 @@ Production design of short movies & commercial sets. Scenography of festivals. I
 
 <!-- Higher education, not high school unless it's a speciality/vocational school worth mentioning. -->
 
+### Graphic and Media Design (BS)
+##### University of Creative Communication
+*2019–present, Prague
+
+### Film Development (Higher Vocational School)
+##### Michael Academy
+*2016-2017, Prague
+
+### Grammar School with Graduation Exam
+##### Gymnázium Na Zatlance
+*2012–2016, Prague
+
+Graduated in Art History, Art, German, English, Czech and Literature.
+
+
 ## Skills
 
-<!-- Not just software, please! See Caroline Win’s skills section: https://www.carolinewin.com/resume -->
+#### Design
+Branding & Key Visuals
+Digital painting & Illustration
+Social media content creating
+Copy Writing
+Motion design & Animation 
+Mockups & Visualisation
+Video editing
+
+#### Traditional Media
+Calligraphy & Hand lettering
+Drawing (ink, coal, pencil)
+Painting  (oil, aquarell)
+
+#### ~
+Art direction & Project planning
+Marketing strategies
+Presentation
+Thinking in space and matter
+
+## Tools
+Photoshop
+Illustrator
+InDesign
+Premiere Pro
+After Effects
+Microsoft Office
 
 - [Download CV (PDF)](pdf/cv-2021-11-ltycova.pdf) <!-- At the top or bottom? -->
