@@ -83,4 +83,4 @@ Graduated in Art History, Art, German, English, Czech and Literature.
 * Microsoft Office
 
 
-[Download CV (PDF)](pdf/cv-2021-11-ltycova.pdf) <!-- At the top or bottom? -->
+[Download CV (PDF)](pdf/Tycova-lucie-cv.pdf) <!-- At the top or bottom? -->
