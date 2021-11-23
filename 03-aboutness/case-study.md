@@ -2,13 +2,11 @@
 
 ##### The story began when Marianna, the head of organization team of Deziluze Festival, wrote me:
 
-![mari-chat1](https://user-images.githubusercontent.com/79570985/142790559-d5f70208-f9c2-4e76-8427-6b2e40307238.png)
+![mari-chat1](https://user-images.githubusercontent.com/79570985/142956340-b64fe910-5e28-4959-ab70-5fe80944b5d9.png)
 
 ##### And I didn’t have Facebook at that time so I didn’t answer. So she wrote me again:
 
-![mari-chat2-1](https://user-images.githubusercontent.com/79570985/142791170-6b5fa54b-de49-452e-b764-52fa7f9e4bde.png)
-
-
+![mari-chat2-1](https://user-images.githubusercontent.com/79570985/142956273-83fafb5a-b635-4542-8cbe-b10d022534d9.png)
 
 ##### And I still didn’t have Facebook so I didn’t answer again. So she called me and said: 
 
