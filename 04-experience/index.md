@@ -6,7 +6,20 @@
 
 ## Experience
 
-<!-- Sort by newest (present) to oldest. -->
+### Freelance Graphic Designer		
+*2018–Present
+
+Prague
+Mainly focused on building brand visual identity. As well as on single graphic pieces and projects.
+
+## Art Director & Construction Leader
+##### Festival Deziluze	
+*2018–Present
+Czech Republic	
+
+Coordination and creation of the visual appearance of the festival. Both through graphics in the digital environment and print, as well as in the scenography of the festival area.
+
+
 
 ## Education
 
