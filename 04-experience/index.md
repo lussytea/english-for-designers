@@ -43,7 +43,7 @@ Production design of short movies & commercial sets. Scenography of festivals. I
 
 ### Film Development (Higher Vocational School)
 ##### Michael Academy
-*2016-2017,* Prague
+*2016–2017,* Prague
 
 ### Grammar School with Graduation Exam
 ##### Gymnázium Na Zatlance
