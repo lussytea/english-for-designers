@@ -2,7 +2,7 @@
 
 ## About Me
 
-A concise, single sentence about yourself as a designer (aim for about 100 characers).
+Hi, my name is Lucy and I am a graphic designer focusing on building brand visual identity,  As well as on single graphic pieces and projects.
 
 - [Take a look at my current project](case-study.md) <!-- A link to your case study -->
 
