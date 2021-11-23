@@ -53,9 +53,9 @@
 
 ![dopis-jeziskovi](https://user-images.githubusercontent.com/79570985/142950267-14d032d7-4c29-4fd0-bf51-fea76b528d15.jpg)
 
-##### Than I create the Christmas version of the iconic of the Deer mascot. 
-
 ![get-a-winter-look](https://user-images.githubusercontent.com/79570985/142943004-b6addf2d-4b12-4fb3-b821-6db515bcb60e.gif)
+
+##### Than I create the Christmas version of the iconic of the Deer mascot. 
 
 ![DeziKoleda-jelen-getawinterlook](https://user-images.githubusercontent.com/79570985/142943026-a0b51c7c-1c35-400a-ad11-ce0f32334c02.png)
 
