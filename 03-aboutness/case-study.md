@@ -63,21 +63,23 @@
 
 ![DeziKoleda-jelen-getawinterlook](https://user-images.githubusercontent.com/79570985/142943026-a0b51c7c-1c35-400a-ad11-ce0f32334c02.png)
 
-##### So I made some of the letters and used them for example for FB event cover and release posts of interprets. I'll probably use them somewhere else, but I'm not done yet.
+##### And I have stood him in front of the letter.
 
 ![DeziKoleda_fbevent](https://user-images.githubusercontent.com/79570985/142954484-f5b82945-6dfb-4e5f-a7b9-368f464c7c19.gif)
 
-##### Vzbudilo to vlno kontroverzních reakcí - od sodíkových reakcí, přes pozitivní komentáře po „Jako umělecké dílo dobrý….“
+##### Somebody in our chat  Vzbudilo to vlno kontroverzních reakcí - od sodíkových reakcí, přes pozitivní komentáře po „Jako umělecké dílo dobrý….“
 
 ![uvodka-reactions](https://user-images.githubusercontent.com/79570985/142791044-1d26f08b-69ce-49d5-82dd-e84fee40b8d8.png)
 
-##### Stejně jsem postupovala s interprety. Each interpret has own letter.
+##### I did the similar with the performers. Each of them has own letter. Each of them was a wish of differnt imaginary child.
 
 ![DeziKoleda-cringe-prince](https://user-images.githubusercontent.com/79570985/142951876-1287a913-1435-492d-bb1e-92115ef898c6.jpg)
 
 ![DeziKoleda-frainbreeze](https://user-images.githubusercontent.com/79570985/142951880-9df672dd-4445-4995-b639-139efd1e22f3.jpg)
 
 ![DeziKoleda-pokoj25](https://user-images.githubusercontent.com/79570985/142951882-0245107d-3b21-4780-a7fe-82cdb54de3dd.jpg)
+
+
 
 ##### And the short melancholic surrealistic release animation with the hand cut snowflakes!
 
