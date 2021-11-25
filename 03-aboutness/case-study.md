@@ -1,10 +1,10 @@
 # Dezi Dezi Koleda
 
-##### The story began when Marianna, the head of organization team of Deziluze Festival, wrote me:
+##### TThe story began, when Marianna, the head of the organization team of the Deziluze Festival, texted me on FB Messenger:
 
 ![mari-chat1](https://user-images.githubusercontent.com/79570985/142956340-b64fe910-5e28-4959-ab70-5fe80944b5d9.png)
 
-##### And I didn’t have Facebook at that time so I didn’t answer. So she wrote me again:
+##### BUT I had deactivated Facebook at that time so I didn't answer. So she texted me on Messenger again:
 
 ![mari-chat2-1](https://user-images.githubusercontent.com/79570985/142956273-83fafb5a-b635-4542-8cbe-b10d022534d9.png)
 
