@@ -94,6 +94,6 @@
 
 ![dezikoleda-reviews](https://user-images.githubusercontent.com/79570985/142790909-f74e0a5e-b8c3-4b70-b354-e9532f9faf18.png)
 
-### But children, this fairy tail has no happy end. An ugly emergency has arrived and the event must be moved. But even that happens!
+### But children, this fairy tail has no happy end. An ugly state of emergency has arrived and the event must be moved. But even that happens!
 
 # MERRY CHRISTMAS! And see you maybe sometimes in Příbram!
