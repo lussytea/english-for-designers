@@ -12,7 +12,7 @@ Hi, my name is Lucy. And I'm a graphic designer finding passion in giving things
 
 We perceive the world through images. So is it probably a good way how to communicate with each other, right? That's the reason I am a graphic designer.
 
-I see every brand, logo, book, magazine, poster, animation, and everything from the visual world, as a being. How to dress this person to attract attention? How to keep eye contact? How to speak for her so that others listen to her, understand and answer her? How to make others want to be friends with her and be proud of it?
+I see every brand, logo, book, magazine, poster, animation, and everything from the visual world, as a being. How to dress this person to attract attention? How to keep eye contact? How to speak for him so that others listen to him, understand and answer him? How to make others want to be friends with him and be proud of it?
 
 Due to my background in production design, I am often thinking about graphics as a part of space. I enjoy applied graphics on the walls, used in projections and installations, in fashion, in print. I am often bringing life and authenticity into the clear graphics through using traditional media, hand drawing, and writing. 
 
