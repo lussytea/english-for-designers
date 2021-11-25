@@ -67,7 +67,7 @@
 
 ![DeziKoleda_fbevent](https://user-images.githubusercontent.com/79570985/142954484-f5b82945-6dfb-4e5f-a7b9-368f464c7c19.gif)
 
-##### Somebody in our chat  Vzbudilo to vlno kontroverzních reakcí - od sodíkových reakcí, přes pozitivní komentáře po „Jako umělecké dílo dobrý….“
+##### The reactions were varied. Somebody in our chat group loved it (see the hearts). Someone wrote "As a stand-alone artwork perfect, but functionally I thought there would be band names and such."...GOOD POINT! But quastion is, *is it neccesary to do it always the same way?*
 
 ![uvodka-reactions](https://user-images.githubusercontent.com/79570985/142791044-1d26f08b-69ce-49d5-82dd-e84fee40b8d8.png)
 
