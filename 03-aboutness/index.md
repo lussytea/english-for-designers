@@ -2,7 +2,7 @@
 
 ## About Me
 
-Hi, my name is Lucy and I am a graphic designer focusing on building brand visual identity,  As well as on single graphic pieces and projects.
+Hi, my name is Lucy. And I'm a graphic designer finding passion in giving things and brands the face, which supports their souls.
 
 - [Take a look at my current project](case-study.md) <!-- A link to your case study -->
 
@@ -10,32 +10,13 @@ Hi, my name is Lucy and I am a graphic designer focusing on building brand visua
 
 ![lussy](https://user-images.githubusercontent.com/79570985/142791396-1f6eda8d-568b-4ce7-a586-cda3034669ba.png)
 
-A series of short paragraphs (one to three) about who you are, beyond being a designer; a personal bio that tells your story, with an emphasis on keywords about what you do, your passions, experience, etc. Consider each paragraph as two to three short, meaningful descriptions (120 characters each). Don’t worry about length — write first — then edit for clarity and conciseness later.
+We perceive the world through images. So is it probably a good way how to communicate with each other, right? That's the reason I am a graphic designer.
+
+I see every brand, logo, book, magazine, poster, animation, and everything from the visual world, as a being. How to dress this person to attract attention? How to keep eye contact? How to speak for her so that others listen to her, understand and answer her? How to make others want to be friends with her and be proud of it?
+
+Due to my background in production design, I am often thinking about graphics as a part of space. I enjoy applied graphics on the walls, used in projections and installations, in fashion, in print. I am often bringing life and authenticity into the clear graphics through using traditional media, hand drawing, and writing. 
+
+I live in Prague, the city of hundred spires, but you maybe know it better as the place, where “I enjoyed the great party, man!”.  I am in love with exploring the cultural events of all kinds, finding inspiration for life in movies and serials, gossiping and deep talking with friends, drawing, painting, lettering, building scenographic construction, and creating other handmade stuff, where you can go dirty, riding the horse, talking about going to yoga and gym, and sometimes actually going there.
 
 
-We perceive the world through images. So is it probably the good way how to communicate with each other, right? Thats the reason I am the graphic and set designer.
-
-_________
-
-
-
-
-
-________
-
-I live in Prague, the city of 100 spires, but you maybe know it better like the place, where„ I enjoyed the great party, man!“. 
-
-And I love doing stuff. Such as 
-
-I am in love with doing stuff. 
-
-finding inspiration in movies and serials. 
-
-Explore the culture events off all kinds. 
-
-Horse riding, Talking about going to yoga and gym, and sometimes actually go there. 
-
-Mluvit o tom, že chodím na jógu a do fitka, a občas tam I jít. 
-
-I also love with drawing, calligraphy, scenographic construction and other handmade stuff, where you can go dirty.
 
