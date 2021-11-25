@@ -1,6 +1,6 @@
 # Dezi Dezi Koleda
 
-##### TThe story began, when Marianna, the head of the organization team of the Deziluze Festival, texted me on FB Messenger:
+##### The story began, when Marianna, the head of the organization team of the Deziluze Festival, texted me on FB Messenger:
 
 ![mari-chat1](https://user-images.githubusercontent.com/79570985/142956340-b64fe910-5e28-4959-ab70-5fe80944b5d9.png)
 
@@ -8,7 +8,7 @@
 
 ![mari-chat2-1](https://user-images.githubusercontent.com/79570985/142956273-83fafb5a-b635-4542-8cbe-b10d022534d9.png)
 
-##### BUT My Facebook was still deactivated so I still didn’t answer. So she called me. 
+##### BUT my Facebook was still deactivated so I still didn’t answer. So she called me: 
 
 ### *M: Hey Lucy! Why are you ignoring me? :( I wrote you on Messenger many times! :(
 
@@ -33,18 +33,18 @@
 ##### Keywords: 
 ### #christmas #cheesy
 
-##### And I add to myself: 
-### To project the visual style of the festival. Such a color, motives, typography and drawing style.
+##### And I added for myself: 
+### To project the visual style of the festival (colors, motives, typography, and drawing style).
 
 ![brandcolors](https://user-images.githubusercontent.com/79570985/142945541-1b0e240c-c86c-4c73-afb1-e9de992f1eff.png)
 
-##### I began tu thinking about it and lay the important question to myself: WHAT DOES THE CHRISTMAS MEAN TO ME? WHATS TYPICAL FOR THE CZECH CHRISTMAS? 
+##### I began to think about it and lay the important question to myself: WHAT DOES THE CHRISTMAS MEAN TO ME? WHAT'S TYPICAL FOR THE (CZECH) CHRISTMAS? 
 ##### And then...
-### ...the magic happened! My phone tinkled with the rimender! 
+### ...the magic happened! My phone tinkled with the reminder! 
+##### **my mother asked me that time every day what I want for Christmas, and I forgot every day to write it to her so I had to create a reminder.*
+
 
 ![DeziKoleda-reminder](https://user-images.githubusercontent.com/79570985/142790772-2152f023-d076-4e8b-8cd4-23c1a9a95a07.jpg)
-
-##### **my mother asked me everyday what I want for Christmas, and I everyday forgot to wrote to her so I had to make I reminder.*
 
 # HEUREEEEEEEEEEEEKAAAAAAAAAAAAAAAAAAAAAAAA! 
 ### This is it! The children letters to Baby Jesus!
