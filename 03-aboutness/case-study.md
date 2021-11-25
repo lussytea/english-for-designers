@@ -8,11 +8,11 @@
 
 ![mari-chat2-1](https://user-images.githubusercontent.com/79570985/142956273-83fafb5a-b635-4542-8cbe-b10d022534d9.png)
 
-##### And I still didn’t have Facebook so I didn’t answer again. So she called me and said: 
+##### BUT My Facebook was still deactivated so I still didn’t answer. So she called me. 
 
-### *M: Hey Lucy, why are you ignoring me? I wrote you on messenger many times! :(((*
+### *M: Hey Lucy! Why are you ignoring me? :( I wrote you on Messenger many times! :(
 
-###  *L: Oh Mari! I am sorry, I deactivated my Facebook but maybe I forgot to deactivate messenger, but I am not using it. So trust me! I am not ignoring you! Tell me, what did you wrote me?*
+###  *L: OH NO, Mari! I am very sorry! But don't take it personally, it was not intentional! I deactivated my Facebook but maybe I forgot to deactivate Facebook Messenger. However I am not using it right now. Tell me, what did you write me there?*
 
 ![arrows](https://user-images.githubusercontent.com/79570985/142947441-ff02e287-0d26-4d31-a245-f4b8a59eadde.png)
 
