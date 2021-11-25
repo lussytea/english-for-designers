@@ -90,8 +90,10 @@
 
 ![Animace Dezi Dezi Koleda](https://user-images.githubusercontent.com/79570985/142955909-7b55acc2-7918-4a7b-992b-05ec5f27117b.mp4)
 
-##### This project is still running, but current reviews are great. There are some examples: 
+##### This project is still running, but current reviews are fabulous. And more are coming. There are some examples: 
 
 ![dezikoleda-reviews](https://user-images.githubusercontent.com/79570985/142790909-f74e0a5e-b8c3-4b70-b354-e9532f9faf18.png)
 
-# Thank you and see you in Příbram! Merry Christmas! 
+### But children, this fairy tail has no happy end. An ugly emergency has arrived and the event must be moved. But even that happens!
+
+# MERRY CHRISTMAS! And see you maybe sometimes in Příbram!
