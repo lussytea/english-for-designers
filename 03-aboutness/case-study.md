@@ -67,11 +67,13 @@
 
 ![DeziKoleda_fbevent](https://user-images.githubusercontent.com/79570985/142954484-f5b82945-6dfb-4e5f-a7b9-368f464c7c19.gif)
 
-##### The reactions were varied. Somebody in our chat group loved it (see the hearts). Someone wrote "As a stand-alone artwork perfect, but functionally I thought there would be band names and such."...GOOD POINT! But quastion is, *is it neccesary to do it always the same way?*
+##### The reactions were varied. Everyone reacted with a heart! Somebody wrote "Super!". And someone also "As a stand-alone artwork perfect, but functionally I thought there would be band names and such..."
+
+##### ...GOOD POINT! But question is, *is it neccesary to do it always the same way?*
 
 ![uvodka-reactions](https://user-images.githubusercontent.com/79570985/142791044-1d26f08b-69ce-49d5-82dd-e84fee40b8d8.png)
 
-##### I did the similar with the performers. Each of them has own letter. Each of them was a wish of differnt imaginary child.
+##### I did the similar with the performers. Each of them has own letter. Each of them was a wish of different imaginary child.
 
 ![DeziKoleda-cringe-prince](https://user-images.githubusercontent.com/79570985/142951876-1287a913-1435-492d-bb1e-92115ef898c6.jpg)
 
@@ -80,12 +82,11 @@
 ![DeziKoleda-pokoj25](https://user-images.githubusercontent.com/79570985/142951882-0245107d-3b21-4780-a7fe-82cdb54de3dd.jpg)
 
 
-
-##### And the short melancholic surrealistic release animation with the hand cut snowflakes!
+##### After that I set in motion a short surreal melancholic release animation with...
 
 ![handmade-vlocky](https://user-images.githubusercontent.com/79570985/142943727-8002fcba-e5a2-4c87-b722-1328346bb2ff.jpg)
 
-https://www.youtube.com/watch?v=xmK1Q5uzH4w&ab_channel=MeriEngel
+##### ...hand cut snowflakes!
 
 ![Animace Dezi Dezi Koleda](https://user-images.githubusercontent.com/79570985/142955909-7b55acc2-7918-4a7b-992b-05ec5f27117b.mp4)
 
