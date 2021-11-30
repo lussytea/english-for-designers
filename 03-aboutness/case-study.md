@@ -81,6 +81,13 @@
 
 ![DeziKoleda-pokoj25](https://user-images.githubusercontent.com/79570985/142951882-0245107d-3b21-4780-a7fe-82cdb54de3dd.jpg)
 
+![DeziKoleda_kaca maluje](https://user-images.githubusercontent.com/79570985/143965447-ac588d4f-8066-4ccd-ab3d-e3edb97ce9db.jpg)
+
+![DeziKoleda_younghavel](https://user-images.githubusercontent.com/79570985/143965502-a24e7a43-3eac-444f-9394-275bab415ba6.jpg)
+
+![DeziKoleda_vajecnak](https://user-images.githubusercontent.com/79570985/143965517-aa8dea02-e706-4158-b9ac-f1ecbebfd72d.jpg)
+![DeziKoleda_vajecnak2](https://user-images.githubusercontent.com/79570985/143965532-747b2063-c219-48b7-903c-0634ca7acae8.jpg)
+
 
 ##### After that I set in motion a short surreal melancholic release animation with...
 
