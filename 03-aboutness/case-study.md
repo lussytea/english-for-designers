@@ -14,8 +14,6 @@
 
 ###  *L: OH NO, Mari! I am very sorry! But don't take it personally, it was not intentional! I deactivated my Facebook but maybe I forgot to deactivate Facebook Messenger. However I am not using it right now. Tell me, what did you write me there?*
 
-![arrows](https://user-images.githubusercontent.com/79570985/142947441-ff02e287-0d26-4d31-a245-f4b8a59eadde.png)
-
 # THE BRIEF: 
 
 ##### Main task:
