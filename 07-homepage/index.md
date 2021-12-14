@@ -4,13 +4,13 @@
 
 Hi, my name is Lucy. And I'm a graphic designer finding passion in giving things and brands the face, which supports their souls.
 
-- [My story](03-aboutness/)
+- [My story](03-aboutness/case-study.md)
 
 - View CV
 
 ## Work
 - [Character & Description](01-character-description/)
-- Case Study: Title
+- Case Study: [Dezi Dezi Koleda](03-aboutness/case-study.md)
 - Impression
 - Experience: CV
 - Voice & Tone
