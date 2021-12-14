@@ -10,7 +10,7 @@ Hi, my name is Lucy. And I'm a graphic designer finding passion in giving things
 
 ## Work
 - [Character & Description](01-character-description/)
-- Case Study: [Dezi Dezi Koleda](03-aboutness/case-study.md)
+- Case Study: [Merry Christmas!](03-aboutness/case-study.md)
 - Impression
 - Experience: CV
 - Voice & Tone
