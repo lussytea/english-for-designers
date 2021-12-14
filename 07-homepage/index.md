@@ -12,7 +12,7 @@ Hi, my name is Lucy. And I'm a graphic designer finding passion in giving things
 - [Character & Description](01-character-description/)
 - Case Study: [Merry Christmas!](03-aboutness/case-study.md)
 - Impression
-- Experience: CV [CV!](english-for-designers/04-experience/index.md)
+- Experience: [CV](english-for-designers/04-experience/index.md)
 - Voice & Tone
 - Storytelling (WIP)
 
