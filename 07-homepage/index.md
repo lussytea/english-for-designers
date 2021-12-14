@@ -2,7 +2,7 @@
 
 ## About
 
-About text…
+Hi, my name is Lucy. And I'm a graphic designer finding passion in giving things and brands the face, which supports their souls.
 
 - [My story](03-aboutness/)
 
