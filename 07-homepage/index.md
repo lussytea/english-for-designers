@@ -12,7 +12,7 @@ Find out more [about me](01-character-description/) or jump to my [CV](04-experi
 
 - [Character & Description](01-character-description.md)
 - Case Study: [Merry Christmas!](03-aboutness/case-study.md)
-- Impression
+- [Impression](https://lussytea.github.io/english-for-designers/02-impression/)
 - Experience: [CV](english-for-designers/04-experience/index.md)
 - Voice & Tone
 - Storytelling (WIP)
