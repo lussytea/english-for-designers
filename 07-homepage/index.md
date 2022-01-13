@@ -2,9 +2,8 @@
 
 ### Hi, my name is Lucie. And I'm a graphic designer finding passion in giving things and brands the face, which supports their souls.
 
-- [My story](03-aboutness/case-study.md)
-
-- View CV
+- Check more [about me] (03-aboutness/case-study.md)
+- or jump to my [CV] 
 
 ## Coursework Overview:
 
