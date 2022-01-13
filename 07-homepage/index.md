@@ -1,5 +1,4 @@
-![Homepage-cover_Stránka_2](https://user-images.githubusercontent.com/79570985/149380157-575292e0-4de7-4274-aadf-b9ba2019328f.png)
-
+![Homepage-cover_Stránka_2](https://user-images.githubusercontent.com/79570985/149382430-51ae5dc8-2a42-42ea-a66c-58f7e7b8fa08.png)
 Find out more [about me](https://lussytea.github.io/english-for-designers/03-aboutness/) or jump to my [CV](https://lussytea.github.io/english-for-designers/04-experience/).
 
 ## Coursework Overview:
