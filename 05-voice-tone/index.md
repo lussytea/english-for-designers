@@ -7,7 +7,7 @@ Creating a voice, tone and style guide helps me to act and speak consistently - 
 
 Voice is how I act, how my character is.
 
-* I am #honest and casual. But building credibility.
+* I am honest and casual. But building credibility.
 * I’m taking it easy! But I'm not indifferent. 
 * I am proud of what I do, but always humble. Never conceited.
 * Straight to the point! I can express myself easily. I simplify it if it is possible. But I'm not afraid „to fly away“ for a while sometimes, if it suits. 
@@ -41,3 +41,8 @@ Regardless of formality level
 * Use abbreviations and acronyms in this way:
         * First use: National Gallery Prague (NGP) 
         * Second use: NGP
+
+
+## Voice, Tone & Style Exmaple (*Aboutness*)
+
+
