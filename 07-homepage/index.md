@@ -3,18 +3,6 @@ Find out more [about me](https://lussytea.github.io/english-for-designers/03-abo
 
 To warm up we played with [characters](https://lussytea.github.io/english-for-designers/01-character-description/)! A typo can be fun, I swear! Then we try to make [impression](https://lussytea.github.io/english-for-designers/02-impression/) on our classmates via a couple of selected works. Later on, we focused on one specific project we developed in the [case study](https://lussytea.github.io/english-for-designers/03-aboutness/case-study.html). I finally summarized my [experience](https://lussytea.github.io/english-for-designers/04-experience/) in the resume! Yeah! Finally, we defined our [voice & Tone](https://lussytea.github.io/english-for-designers/05-voice-tone/) and shared our [design story](https://lussytea.github.io/english-for-designers/06-storytelling/).
 
-
-Find out more [about me](https://lussytea.github.io/english-for-designers/03-aboutness/) or jump to my [CV](https://lussytea.github.io/english-for-designers/04-experience/).
-
-## Coursework Overview:
-
-- [Character & Description](https://lussytea.github.io/english-for-designers/01-character-description/)
-- [Case Study](https://lussytea.github.io/english-for-designers/03-aboutness/case-study.html)
-- [Impression](https://lussytea.github.io/english-for-designers/02-impression/)
-- [Experience](https://lussytea.github.io/english-for-designers/04-experience/)
-- [Voice & Tone](https://lussytea.github.io/english-for-designers/05-voice-tone/)
-- [Storytelling (WIP)](https://lussytea.github.io/english-for-designers/06-storytelling/)
-
 ## Contact
 
 lucie.tyc@gmail.com | +420 739 281 172 | @lussy_tee | Prague
