@@ -8,7 +8,7 @@ Find out more [about me](01-character-description/) or jump to my [CV](04-experi
 - Case Study: [Merry Christmas!](https://lussytea.github.io/english-for-designers/03-aboutness/case-study/)
 - [Impression](https://lussytea.github.io/english-for-designers/02-impression/)
 - Experience: [CV](english-for-designers/04-experience/index.md)
-- Voice & Tone (https://lussytea.github.io/english-for-designers/05-voice-tone/)
+- [Voice & Tone](https://lussytea.github.io/english-for-designers/05-voice-tone/)
 - Storytelling (WIP)
 
 ## Contact
