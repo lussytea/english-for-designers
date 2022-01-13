@@ -19,30 +19,25 @@ Voice is how I act, how my character is.
 
 My tone is how I speak, how I use my voice in different situations. It is similar like face-to-face communication in real life. We use the tone according to who we’re talking to and what we’re talking about, but our personality (voice) remains the same. 
 
-Regardless of formality level…
-- be empathic, try to feel the situation, and respond accordingly
+Regardless of formality level
+- be empathic, try to feel the situation, and respond accordingly.
 - go straight to the point! Express it easily.
-- stay honest and authentic
+- stay honest and authentic.
 - use humor when it comes naturally, not try to be funny by force. 
 - be creative! be free to use movie quotes, original metaphor, verse, etc.
-- ask questions, open topics, be mysterious sometimes
+- ask questions, open topics, be mysterious sometimes.
 
 
 ## Style
 
-* Active voice, instead of passive voice.
-* Plain English.
-* Positive writing, instead of negative.
+The key is to
+* use active voice, instead of passive voice.
+* use plain English.
+* write positively, instead of negatively.
 
-* Shorten the words, if it is possible.
-* Use a consistent title hierarchy. Use strong headlines.
-* Use paragraphs to segment the text.
-* Use abbreviations and acronyms in this way:
+* shorten the words, if it is possible.
+* use a consistent title hierarchy. Use strong headlines.
+* use paragraphs to segment the text.
+* use abbreviations and acronyms in this way:
         * First use: National Gallery Prague (NGP) 
         * Second use: NGP
-
-<!-- Perhaps include style tips on capitalization of headings (sentence or title case), words to avoid, or general grammar and mechanics dos and don'ts, etc. -->
-
-- …
-- …
-- …
