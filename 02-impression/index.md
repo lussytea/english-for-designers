@@ -1,6 +1,6 @@
-![Cover](https://user-images.githubusercontent.com/79570985/140930128-36ee7c3f-91f3-4b32-9b89-68f8d6a62aab.png)
 # #designováDiplomka
-![#designovaDiplomka](https://user-images.githubusercontent.com/79570985/140930043-41a4bd45-e79d-4400-9df2-7351959b91ff.gif)
+
+![#designovaDiplomka](https://user-images.githubusercontent.com/79570985/149397600-755be5e0-b3b5-41ec-95d4-9f26e06aa541.gif)
 ![#designovaDiplomka 2](https://user-images.githubusercontent.com/79570985/140929998-1d3e05c3-8709-4de2-9266-7165f0078bc7.gif)
 
 # LÍZNI DEZI
@@ -32,7 +32,7 @@ https://www.facebook.com/events/921462378616503/?acontext=%7B%22event_action_his
 
 
 # POVSTALET'S!
-![Povstalets-covers](https://user-images.githubusercontent.com/79570985/140936167-97de843b-fbdb-445e-a717-d9f177e67fca.gif)
+![POVSTALETS!](https://user-images.githubusercontent.com/79570985/149397653-6cb4a462-bbac-43b0-afb8-58b9114d3900.gif)
 ![Povstalets-obsah](https://user-images.githubusercontent.com/79570985/140936183-1f1a5534-cd9b-4257-952b-48fcc1f7960d.jpg)
 
 # U Mamlasů
