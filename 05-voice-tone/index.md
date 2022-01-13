@@ -30,14 +30,14 @@ Regardless of formality level
 
 ## Style
 
-The key is to
-* use active voice, instead of passive voice.
-* use plain English.
-* write positively, instead of negatively.
 
-* shorten the words, if it is possible.
-* use a consistent title hierarchy. Use strong headlines.
-* use paragraphs to segment the text.
-* use abbreviations and acronyms in this way:
+* Use active voice, instead of passive voice.
+* Use plain English.
+* Write positively, instead of negatively.
+
+* Shorten the words, if it is possible.
+* Use a consistent title hierarchy. Use strong headlines.
+* Use paragraphs to segment the text.
+* Use abbreviations and acronyms in this way:
         * First use: National Gallery Prague (NGP) 
         * Second use: NGP
