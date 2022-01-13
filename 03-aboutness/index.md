@@ -8,7 +8,7 @@ Hi, my name is Lucy. And I'm a graphic designer finding passion in giving things
 
 ## My Story
 
-![lussy](https://user-images.githubusercontent.com/79570985/142791396-1f6eda8d-568b-4ce7-a586-cda3034669ba.png)
+![lussy_fotka_web](https://user-images.githubusercontent.com/79570985/149385310-b2849eae-1e2b-4506-bff7-56736bceabac.jpg)
 
 We perceive the world through images. So is it probably a good way how to communicate with each other, right? That's the reason I am a graphic designer.
 
