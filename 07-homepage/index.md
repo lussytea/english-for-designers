@@ -1,5 +1,8 @@
 # LUCIE LAGERTHA TYCOVA
 
+
+Graphic Designer | Prague | lucie.tyc@gmail.com | +420 739 281 172 | @lussy_tee
+
 ## Hi, 
 my name is Lucie. And I'm a graphic designer finding passion in giving things and brands the face, which supports their souls.
 
@@ -16,7 +19,7 @@ Find out more [about me](01-character-description/) or jump to my [CV](04-experi
 
 ## Contact
 
-- ?
+lucie.tyc@gmail.com | +420 739 281 172 | @lussy_tee
 
 # Takeaways
 
