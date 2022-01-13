@@ -1,12 +1,13 @@
 # LUCIE LAGERTHA TYCOVA
 
-### Hi, my name is Lucie. And I'm a graphic designer finding passion in giving things and brands the face, which supports their souls.
+## Hi, 
+my name is Lucie. And I'm a graphic designer finding passion in giving things and brands the face, which supports their souls.
 
-Find out more [about me](01-character-description/) or jump to my [CV](04-expression/index.md).
+Find out more [about me](01-character-description/) or jump to my [CV](04-experience/index.md).
 
 ## Coursework Overview:
 
-- [Character & Description](01-character-description/)
+- [Character & Description](01-character-description.md)
 - Case Study: [Merry Christmas!](03-aboutness/case-study.md)
 - Impression
 - Experience: [CV](english-for-designers/04-experience/index.md)
