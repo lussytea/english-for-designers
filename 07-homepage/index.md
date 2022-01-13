@@ -1,4 +1,4 @@
-![07-homepage-cover_crop](https://user-images.githubusercontent.com/79570985/149376144-d1f356b3-10dd-4e7f-aa99-d5008e1ee4e1.jpg)
+![Homepage-cover_Stránka_2](https://user-images.githubusercontent.com/79570985/149380157-575292e0-4de7-4274-aadf-b9ba2019328f.png)
 
 Find out more [about me](https://lussytea.github.io/english-for-designers/03-aboutness/) or jump to my [CV](https://lussytea.github.io/english-for-designers/04-experience/).
 
