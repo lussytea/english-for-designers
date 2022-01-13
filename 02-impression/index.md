@@ -5,10 +5,9 @@
 
 # LÍZNI DEZI
 
+https://user-images.githubusercontent.com/79570985/149398833-e552f6ad-d49a-4fbf-bb76-49063ea68dc7.mp4
+
 ![LizniDezi-interpreti](https://user-images.githubusercontent.com/79570985/140933089-974bc8b6-6ce1-4fef-99ba-940537473869.gif)
-
-https://www.facebook.com/festivaldeziluze/videos/826488261611313
-
 
 # FESTIVAL DEZILUZE
 
@@ -18,10 +17,6 @@ https://www.facebook.com/festivaldeziluze/videos/826488261611313
 <img width="960" alt="Dezi21-merch-placky" src="https://user-images.githubusercontent.com/79570985/140935433-0aa84691-465e-454c-b102-0fd751a5f84a.png">
 
 ![Dezi-nohy](https://user-images.githubusercontent.com/79570985/140935776-a9d19b79-01f2-42d3-80d4-de6397e6e742.jpg)
-https://www.instagram.com/p/CNP4nL2hf-v/
-
-https://www.facebook.com/events/921462378616503/?acontext=%7B%22event_action_history%22%3A[%7B%22mechanism%22%3A%22search_results%22%2C%22surface%22%3A%22search%22%7D]%2C%22ref_notif_type%22%3Anull%7D
-
 
 ![Dezi21-merch-karty](https://user-images.githubusercontent.com/79570985/140935743-f1d2588b-ab4c-4a20-8ced-5bf991d9bd66.jpg)
 ![Dezi21-merch-trika](https://user-images.githubusercontent.com/79570985/140935753-22ad0497-dbfd-4e8c-bdfd-4a1e93870d32.jpg)
