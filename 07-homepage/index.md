@@ -1,5 +1,4 @@
-# LUCIE LAGERTHA TYCOVA
-
+![07-homepage-cover](https://user-images.githubusercontent.com/79570985/149375074-43078e53-2b09-4f09-b321-b021e3b809da.jpg)
 
 Graphic Designer | Prague | lucie.tyc@gmail.com | +420 739 281 172 | @lussy_tee
 
@@ -10,8 +9,8 @@ Find out more [about me](01-character-description/) or jump to my [CV](04-experi
 
 ## Coursework Overview:
 
-- [Character & Description](01-character-description.md)
-- Case Study: [Merry Christmas!](03-aboutness/case-study.md)
+- [Character & Description](https://lussytea.github.io/english-for-designers/01-character-description/)
+- Case Study: [Merry Christmas!](https://lussytea.github.io/english-for-designers/03-aboutness/case-study.md/)
 - [Impression](https://lussytea.github.io/english-for-designers/02-impression/)
 - Experience: [CV](english-for-designers/04-experience/index.md)
 - Voice & Tone
