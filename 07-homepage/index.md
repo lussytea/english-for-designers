@@ -1,11 +1,11 @@
-![07-homepage-cover](https://user-images.githubusercontent.com/79570985/149375074-43078e53-2b09-4f09-b321-b021e3b809da.jpg)
+![07-homepage-cover_crop](https://user-images.githubusercontent.com/79570985/149376144-d1f356b3-10dd-4e7f-aa99-d5008e1ee4e1.jpg)
 
 Find out more [about me](01-character-description/) or jump to my [CV](04-experience/index.md).
 
 ## Coursework Overview:
 
 - [Character & Description](https://lussytea.github.io/english-for-designers/01-character-description/)
-- Case Study: [Merry Christmas!](https://lussytea.github.io/english-for-designers/03-aboutness/case-study.md/)
+- Case Study: [Merry Christmas!](https://lussytea.github.io/english-for-designers/03-aboutness/case-study/)
 - [Impression](https://lussytea.github.io/english-for-designers/02-impression/)
 - Experience: [CV](english-for-designers/04-experience/index.md)
 - Voice & Tone
