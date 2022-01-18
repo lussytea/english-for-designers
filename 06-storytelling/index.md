@@ -28,6 +28,8 @@ Anyway, the letters were successful. And in a week the phone rang:
 
 *"Heeey Lucy, do you have time to write for us some notes like Mozart?”
 
+![06-storytelling-photos2](https://user-images.githubusercontent.com/79570985/150009166-f559779e-d0cd-4ff0-953b-ac4c9d3af525.jpg)
+
 And it was already going.
 
 In two years I traveled as a film graphic designer, calligrapher, and illustrator through time and stories. 
