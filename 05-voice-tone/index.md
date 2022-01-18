@@ -30,10 +30,13 @@ Regardless of formality level
 
 ## Style
 
+### Overall
 
 * Use active voice, instead of passive voice.
 * Use plain English.
 * Write positively, instead of negatively.
+
+### Details
 
 * Shorten the words, if it is possible.
 * Use a consistent title hierarchy. Use strong headlines.
