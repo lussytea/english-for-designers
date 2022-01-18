@@ -18,7 +18,7 @@ Well. Back in the spring of 2018:
 
 I didn't have any idea how to make such a thing, so I said:
 
-*"Yes of course, no problem!”
+*"Yes of course, no problem!”*
 
 Damn. What now?! Ok Lucy, don't panic. Just fake it till you make it! So I learned to write like Karl Marx. Firstly I copied every letter according to the reference. Later on I was writting like Marx maybe more fluent than Marx himself! Well, maybe I'm exaggerating a little again!
 
