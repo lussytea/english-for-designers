@@ -4,9 +4,9 @@ by Lucie L. Tycova
 
 What is "my design story"? Well. It all started in the spring of 2018 with a phone call:*
 
-* OK, that's not quite true. Let’s make a short break here to draw a background.
+OK, that's not quite true. Let’s make a short break here to draw a background.
 
- At that time I attended a higher vocation film school focusing on film directing. But as our filming went, I found out, I'm passionate about telling a story through decorations, furniture, and props more than anything else. I started building sets for short and student movies.
+At that time I attended a higher vocation film school focusing on film directing. But as our filming went, I found out, I'm passionate about telling a story through decorations, furniture, and props more than anything else. I started building sets for short and student movies.
 
 At the same time, I made diaries under my small brand, for which I "designed" pages to the diaries, logo, websites, etc.
 
