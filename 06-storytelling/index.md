@@ -2,17 +2,17 @@
 
 by Lucie L. Tycova
 
-What is "my design story"? Well. It all started in the spring of 2018 with a phone call:*
+What is "my design story"? Well. It all started in the spring of 2018 with a phone call:
 
-OK, that's not quite true. Let’s make a short break here to draw a background.
+> OK, that's not quite true. Let’s make a short break here to draw a background.
+>
+> I was attending a vocational film school focusing on film directing. But as our filming went on, I found out, I'm passionate about telling a story through decorations, furniture, and props more than anything else. I started building sets for short and student movies.
+>
+> At the same time, I made diaries under my small brand, for which I "designed" pages, logo, websites, etc.
+>
+> So it wasn't the literal beginning of everything, but at least the part I want to tell. Plus, it's not nice to destroy a good story with the truth!
 
-I was attending a vocational film school focusing on film directing. But as our filming went on, I found out, I'm passionate about telling a story through decorations, furniture, and props more than anything else. I started building sets for short and student movies.
-
-At the same time, I made diaries under my small brand, for which I "designed" pages, logo, websites, etc.
-
-So it wasn't the literal beginning of everything, but at least the part I want to tell. Plus, it's not nice to destroy a good story with the truth!
-
-Well. Back in the spring of 2018:
+Well. Back in the spring of 2018!
 
 *"Hey, I got your number by Alex. He said you write pretty well. Wouldn't you write us letters like Marx in one movie?”*
 
