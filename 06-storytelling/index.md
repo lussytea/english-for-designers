@@ -65,14 +65,9 @@ About the designer…
 
 <!-- Links to preparatory content: mind map, sketches, notes, etc. -->
 
-- […](…)
-- […](…)
-- […](…)
 
 ## Resources
 
 <!-- Links to resources mentioned above -->
 
-- […](…)
-- […](…)
-- […](…)
+
