@@ -43,7 +43,7 @@ Regardless of formality level
         * Second use: NGP
 
 
-## Voice, Tone & Style Exmaple (*Aboutness*)
+### Examaple (*Aboutness*)
 
 We perceive the world through images. So is it probably a good way how to communicate with each other, right? That's the reason I am a graphic designer.
 
