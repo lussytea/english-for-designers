@@ -42,8 +42,8 @@ Regardless of formality level
 * Use a consistent title hierarchy. Use strong headlines.
 * Use paragraphs to segment the text.
 * Use abbreviations and acronyms in this way:
-        * First use: National Gallery Prague (NGP) 
-        * Second use: NGP
+  * First use: National Gallery Prague (NGP) 
+  * Second use: NGP
 
 
 ### Example (*Aboutness*)
