@@ -1,4 +1,4 @@
-![homepage-cover3](https://user-images.githubusercontent.com/79570985/149400720-0b76c629-3590-4888-942f-aab70188fd87.png)
+![Hi! I'm Lucie. And I'm a graphic designer finding passion in giving things and brands the face, which supports their souls.](https://user-images.githubusercontent.com/79570985/149945606-f54ea75e-2fd7-4f9e-a638-f8c63a8fbb9a.png)
 
 #### [about me](https://lussytea.github.io/english-for-designers/03-aboutness/) / [impression](https://lussytea.github.io/english-for-designers/02-impression/) / [case study](https://lussytea.github.io/english-for-designers/03-aboutness/case-study.html) / [experience](https://lussytea.github.io/english-for-designers/04-experience/) / [character & description](https://lussytea.github.io/english-for-designers/01-character-description/) / [voice & tone](https://lussytea.github.io/english-for-designers/05-voice-tone/) / [my design story](https://lussytea.github.io/english-for-designers/06-storytelling/) / [course takeaways](https://lussytea.github.io/english-for-designers/07-takeaways/)
 
