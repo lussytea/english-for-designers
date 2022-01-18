@@ -16,13 +16,16 @@ Well. Back in the spring of 2018!
 
 *"Hey, I got your number by Alex. He said you write pretty well. Wouldn't you write us letters like Marx in one movie?”*
 
-![06-storytelling-photos1](https://user-images.githubusercontent.com/79570985/150008657-90f891db-7fca-47d5-88e5-6e054dc9d17c.jpg)
+![06-storytelling-photos1 2](https://user-images.githubusercontent.com/79570985/150010176-9d5535af-87b5-48cf-83cc-a4d2e6b08c26.jpg)
 
 I didn't have any idea how to make such a thing, so I said:
 
 *"Yes of course, no problem!”*
 
 Damn. What now?! Ok Lucy, don't panic. Just fake it till you make it! So I learned to write like Karl Marx. Firstly I copied every letter according to the reference. Later on I was writting like Marx maybe more fluent than Marx himself! Well, maybe I'm exaggerating a little again!
+
+![06-storytelling-photos1 3](https://user-images.githubusercontent.com/79570985/150010148-5701e56d-5b8d-4628-be33-10767b4255a7.jpg)
+
 
 Anyway, the letters were successful. And in a week the phone rang:
 
