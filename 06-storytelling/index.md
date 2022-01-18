@@ -4,9 +4,9 @@ by Lucie L. Tycova
 
 What is "my design story"? Well. It all started in the spring of 2018 with a phone call:*
 
-*OK, that's not quite true. Let’s make a short break here to draw a background.
+* OK, that's not quite true. Let’s make a short break here to draw a background.
 
-At that time I attended a higher vocation film school focusing on film directing. But as our filming went, I found out, I'm passionate about telling a story through decorations, furniture, and props more than anything else. I started building sets for short and student movies.
+ At that time I attended a higher vocation film school focusing on film directing. But as our filming went, I found out, I'm passionate about telling a story through decorations, furniture, and props more than anything else. I started building sets for short and student movies.
 
 At the same time, I made diaries under my small brand, for which I "designed" pages to the diaries, logo, websites, etc.
 
@@ -14,41 +14,43 @@ So it wasn't the literal beginning of everything, but at least the part I want t
 
 Well. Back in the spring of 2018:
 
-"Hey, I got your number by Alex. He said you write pretty well. Wouldn't you write us letters like Marx in one movie?”
+*"Hey, I got your number by Alex. He said you write pretty well. Wouldn't you write us letters like Marx in one movie?”*
 
 I didn't have any idea how to make such a thing, so I said:
 
-"Yes of course, no problem!”
+*"Yes of course, no problem!”
 
 Damn. What now?! Ok Lucy, don't panic. Just fake it till you make it! So I learned to write like Karl Marx. Firstly I copied every letter according to the reference. Later on I was writting like Marx maybe more fluent than Marx himself! Well, maybe I'm exaggerating a little again!
 
 Anyway, the letters were successful. And in a week the phone rang:
 
-"Heeey, do you have time to write for us some notes like Mozart?”
+*"Heeey Lucy, do you have time to write for us some notes like Mozart?”
 
 And it was already going.
 
 In two years I traveled as a film graphic designer, calligrapher, and illustrator through time and stories. 
 From a love story of two monks, I took a Nazi submarine ride into the life of Louis Van Beethoven, from which I teleported to post-war Germany. Here I stayed a bit and knew the fate of the people at the famous Berlin hospital Charité, with whom we were sad witnesses of the construction of the Berlin Wall. Later on, I went back 570 years and ruled with Margrete – Queen of the North the for a while. Then we flew with bloodthirsty vampires on the plane. Well, I preferred to stay with the old vampire in the basement and examine the anatomy and blood. Then the late baroque and classicist composer Josef Mysliveček and I wrote a few letters to his mistresses and we begged for money from his brother. You know, art doesn't make much money! But being the high society of the same time brings in a lot of money, parties, love stories and intrigue, we found out through another film story. I changed the richly decorated clothes for the skin of a Jewish painter, who goes crazy while hiding before taking back to a concentration camp. Where I finally ended up and looked into the non-melodic lives of local musicians.
+
 At the same time, I continued with the scenography of student films, commercials, and, more recently, festivals.
+
 And I understood/ I learned 
 
 by making props:
-that every detail matters and tells a part of the story
-that you need to feel and understand the story to be able to create its parts, because nothing stands alone.
+- that every detail matters and tells a part of the story
+- that you need to feel and understand the story to be able to create its parts, because nothing stands alone.
 
 and by designing sets:
-that everything must make sense together to tell an understandable story. 
+- that everything must make sense together to tell an understandable story. 
 
 Although I loved the job, I knew I want to create something new. Something I can see in real-time and real space. That I wish to see people interact with my designs.
+
 So here I am! In the third year of graphic and media design.
 
-And do you know what I realized? Do you remember I told you about making props and creating sets a few lines higher? It’s the same with branding!
+And do you know what I realized? Do you remember I told you about making props and creating sets a few lines higher? it's still exactly the same!
 
-But we said logo, poster, social network post, business card, piece of merch, etc. instead of prop and brand instead of set/scene.
+But we said *a logo, poster, social network post, business card, piece of merch, etc.* instead of *a prop* and *a brand* instead of *a set*.
 
-And you know what? It's the same. They teach us always ask "Why?". And when the answer is "Because I like it", than it is not the right way. 
-We need to always find the soul of the project to create its image. We need always ask how does it tell the story?
+They teach us also always ask "Why?". And when the answer is "Because I like it", then it is not the right way. We need to always find the soul of the project/ the point of the project/ main motive of the project to create its image / its form. We need to always ask: Does it tell the story? 
 
 Because that's what it's all about.
 
