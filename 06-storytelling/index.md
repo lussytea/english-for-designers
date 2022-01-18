@@ -6,9 +6,9 @@ What is "my design story"? Well. It all started in the spring of 2018 with a pho
 
 OK, that's not quite true. Let’s make a short break here to draw a background.
 
-At that time I attended a higher vocation film school focusing on film directing. But as our filming went, I found out, I'm passionate about telling a story through decorations, furniture, and props more than anything else. I started building sets for short and student movies.
+I was attending a vocational film school focusing on film directing. But as our filming went on, I found out, I'm passionate about telling a story through decorations, furniture, and props more than anything else. I started building sets for short and student movies.
 
-At the same time, I made diaries under my small brand, for which I "designed" pages to the diaries, logo, websites, etc.
+At the same time, I made diaries under my small brand, for which I "designed" pages, logo, websites, etc.
 
 So it wasn't the literal beginning of everything, but at least the part I want to tell. Plus, it's not nice to destroy a good story with the truth!
 
