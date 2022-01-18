@@ -36,7 +36,7 @@ In two years I traveled as a film [graphic designer, calligrapher, and illustrat
 
 From a [love story of two monks](https://www.imdb.com/title/tt9014656/?ref_=fn_al_tt_2), 
 
-I took a [Nazi submarine ride](https://www.imdb.com/title/tt5830254/?ref_=fn_al_tt_3) 
+I took a [Nazi submarine](https://www.imdb.com/title/tt5830254/?ref_=fn_al_tt_3) ride 
 
 into the [life of Louis Van Beethoven](https://www.imdb.com/title/tt11496350/?ref_=fn_al_tt_1), 
 
