@@ -34,19 +34,21 @@ And it was already going.
 
 In two years I traveled as a film [graphic designer, calligrapher, and illustrator](https://lucietyc.wixsite.com/lucielagerthatyc) through time and stories.
 
-From a love story of two monks, 
+From a [love story of two monks](https://www.imdb.com/title/tt9014656/?ref_=fn_al_tt_2), 
 
-I took a Nazi submarine ride into the life of Louis Van Beethoven, 
+I took a [Nazi submarine ride](https://www.imdb.com/title/tt5830254/?ref_=fn_al_tt_3) 
 
-from which I teleported to post-war Germany. 
+into the [life of Louis Van Beethoven](https://www.imdb.com/title/tt11496350/?ref_=fn_al_tt_1), 
 
-Here I stayed a bit and knew the fate of the people at the famous Berlin hospital Charité, with whom we were sad witnesses of the construction of the Berlin Wall.
+from which I teleported to [post-war Germany](https://www.imdb.com/title/tt11944132/?ref_=ttmi_tt).  
 
-Later on, I went back 570 years and ruled with Margrete – Queen of the North the for a while. 
+Here I stayed a bit and knew the fate of the people at the famous Berlin hospital [Charité](https://www.imdb.com/title/tt5337806/?ref_=fn_al_tt_1), with whom we were sad witnesses of the construction of the Berlin Wall.
 
-Then we flew with bloodthirsty vampires on the plane. Well, I preferred to stay with the old vampire in the basement and examine the anatomy and blood. 
+Later on, I went back 570 years and ruled with [Margrete – Queen of the North](https://www.imdb.com/title/tt9308390/?ref_=fn_al_tt_1) the for a while. 
 
-Then the late baroque and classicist composer Josef Mysliveček and I wrote a few letters to his mistresses and we begged for money from his brother. You know, art doesn't make much money! 
+Then we flew with bloodthirsty [vampires on the plane](https://www.imdb.com/title/tt6402468/?ref_=fn_al_tt_1). Well, I preferred to stay with the old vampire in the basement and examine the anatomy and blood. 
+
+Then the [late baroque and classicist composer Josef Mysliveček](https://www.imdb.com/title/tt10726774/?ref_=nv_sr_srsg_0) and I wrote a few letters to his mistresses and we begged for money from his brother. You know, art doesn't make much money! 
 
 But being the high society of the same time brings in a lot of money, parties, love stories and intrigue, we found out through another film story. 
 
