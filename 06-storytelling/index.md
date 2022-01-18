@@ -16,6 +16,8 @@ Well. Back in the spring of 2018!
 
 *"Hey, I got your number by Alex. He said you write pretty well. Wouldn't you write us letters like Marx in one movie?”*
 
+![06-storytelling-photos1](https://user-images.githubusercontent.com/79570985/150008657-90f891db-7fca-47d5-88e5-6e054dc9d17c.jpg)
+
 I didn't have any idea how to make such a thing, so I said:
 
 *"Yes of course, no problem!”*
