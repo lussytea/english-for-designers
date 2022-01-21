@@ -24,6 +24,8 @@ I didn't have any idea how to make such a thing, so I said:
 
 Damn. What now?! Ok Lucy, don't panic. Just fake it till you make it! So I learned to write like Karl Marx. Firstly I copied every letter according to the reference. Later on I was writting like Marx maybe more fluent than Marx himself! Well, maybe I'm exaggerating a little again!
 
+![Letters-marx2](https://user-images.githubusercontent.com/79570985/150484810-c283ecd2-b6d2-4b69-ad5e-08d4358948b1.jpg)
+
 Anyway, the letters were successful. And in a week the phone rang:
 
 *"Heeey Lucy, do you have time to write for us some notes like Mozart?”
@@ -36,29 +38,51 @@ In two years I traveled as a film [graphic designer, calligrapher, and illustrat
 
 From a [love story of two monks](https://www.imdb.com/title/tt9014656/?ref_=fn_al_tt_2), 
 
+![narciuss-und-goldmund](https://user-images.githubusercontent.com/79570985/150484837-5967e670-e2e2-4d72-be65-3c8030cb661e.jpg)
+
 I took a [Nazi submarine](https://www.imdb.com/title/tt5830254/?ref_=fn_al_tt_3) ride 
+
+![das-boot-2](https://user-images.githubusercontent.com/79570985/150484881-e9213de0-5a43-493d-a09f-37b7f9f764d7.jpg)
+![das-boot-2-lps](https://user-images.githubusercontent.com/79570985/150484887-544cf8cc-34dc-4c00-b73f-dd8f43165a61.jpg)
 
 into the [life of Louis Van Beethoven](https://www.imdb.com/title/tt11496350/?ref_=fn_al_tt_1), 
 
+![beethoven](https://user-images.githubusercontent.com/79570985/150484919-6d1e3498-2d02-457c-b8b4-b06c3646bfe9.jpg)
+
 from which I teleported to [post-war Germany](https://www.imdb.com/title/tt11944132/?ref_=ttmi_tt).  
+
+![unsere wunderbaren jahren](https://user-images.githubusercontent.com/79570985/150484950-0600b8e8-0a48-4eab-9210-3fa8a09980ed.jpg)
 
 Here I stayed a bit and knew the fate of the people at the famous Berlin hospital [Charité](https://www.imdb.com/title/tt5337806/?ref_=fn_al_tt_1), with whom we were sad witnesses of the construction of the Berlin Wall.
 
+![charite](https://user-images.githubusercontent.com/79570985/150485131-e907d6ec-4ad6-4bb0-b9ea-3e017d8f3165.jpg)
+
 Later on, I went back 570 years and ruled with [Margrete – Queen of the North](https://www.imdb.com/title/tt9308390/?ref_=fn_al_tt_1) the for a while. 
+
+![margrete](https://user-images.githubusercontent.com/79570985/150485239-a9e5f3c3-9645-4dd5-9c51-5b85963ab22e.jpg)
+
 
 Then we flew with bloodthirsty [vampires on the plane](https://www.imdb.com/title/tt6402468/?ref_=fn_al_tt_1). Well, I preferred to stay with the old vampire in the basement and examine the anatomy and blood. 
 
+![red-blood-sky](https://user-images.githubusercontent.com/79570985/150485189-499ca2cb-4354-485a-a068-bc81dfb021c4.jpg)
+
 Then the [late baroque and classicist composer Josef Mysliveček](https://www.imdb.com/title/tt10726774/?ref_=nv_sr_srsg_0) and I wrote a few letters to his mistresses and we begged for money from his brother. You know, art doesn't make much money! 
+
+![il-boemo](https://user-images.githubusercontent.com/79570985/150485260-09aab2df-885e-40b9-b952-f5a48d153b09.jpg)
 
 But being the high society of the same time brings in a lot of money, parties, love stories and intrigue, we found out through another film story. 
 
 I changed the richly decorated clothes for the skin of a Jewish painter, who goes crazy while hiding before taking back to a concentration camp. 
 
+![martha](https://user-images.githubusercontent.com/79570985/150485356-9ee0a526-2cca-47b6-854c-48db24a0d2cc.jpg)
 
 Where I finally ended up and looked into the non-melodic lives of local musicians.
 
+![terezin](https://user-images.githubusercontent.com/79570985/150485340-0b6b1223-806b-41b2-add2-0a14995883d8.jpg)
 
 At the same time, I continued with the scenography of student films, commercials, and, more recently, festivals.
+
+![set-design](https://user-images.githubusercontent.com/79570985/150485391-46b04787-9b04-4240-a89d-f93c92a1ae0d.jpg)
 
 And I understood/ I learned 
 
@@ -70,6 +94,8 @@ and by designing sets:
 - that everything must make sense together to tell an understandable story. 
 
 Although I loved the job, I knew I want to create something new. Something I can see in real-time and real space. That I wish to see people interact with my designs.
+
+![designs](https://user-images.githubusercontent.com/79570985/150485472-70bc2565-a930-4ba6-bd10-48e3a3d88f90.jpg)
 
 So here I am! In the third year of graphic and media design.
 
