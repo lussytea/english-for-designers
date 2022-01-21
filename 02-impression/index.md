@@ -40,18 +40,16 @@
 ![Exterior design of U Mamlasů restaurant](https://user-images.githubusercontent.com/79570985/140930969-31bcd453-07a3-44c7-906a-8e5f132c4157.jpg)
 
 # #5 PROSTOR
-![5prostor-logo](https://user-images.githubusercontent.com/79570985/140931329-cfbcf90c-7225-4b2d-a6b9-c6129ef5cbb6.gif)
-![5prostor-mapa](https://user-images.githubusercontent.com/79570985/140931382-bad819ce-0736-4a0a-af52-9daeead60c30.gif)
-![5prostor-lineup](https://user-images.githubusercontent.com/79570985/140931443-82e859b3-78a4-446d-af57-8284cbdba34d.gif)
-![5prostor-piktogramy](https://user-images.githubusercontent.com/79570985/140931474-c5c9ce49-9e01-4cd3-bfee-58d5b6ab9e36.png)
-https://user-images.githubusercontent.com/79570985/140931717-b074946e-24ea-4bfb-b524-402e1e899def.mov
-![5prostor-piktogramy2](https://user-images.githubusercontent.com/79570985/140931478-d2239cb7-beb6-46d4-87d0-975edf35f8f7.png)
+![Animated gif of #5 PROSTOR logo.](https://user-images.githubusercontent.com/79570985/140931329-cfbcf90c-7225-4b2d-a6b9-c6129ef5cbb6.gif)
+![Animated gif of #5 PROSTOR map.](https://user-images.githubusercontent.com/79570985/140931382-bad819ce-0736-4a0a-af52-9daeead60c30.gif)
+![Animation of #5 PROSTOR line-up.](https://user-images.githubusercontent.com/79570985/140931443-82e859b3-78a4-446d-af57-8284cbdba34d.gif)
+![Pictograms of health station/ health info and tickets info in #5 PROSTOR visual style](https://user-images.githubusercontent.com/79570985/140931474-c5c9ce49-9e01-4cd3-bfee-58d5b6ab9e36.png)
+![Pictograms of culture sortiment in #5 PROSTOR visual style](https://user-images.githubusercontent.com/79570985/140931478-d2239cb7-beb6-46d4-87d0-975edf35f8f7.png)
 https://www.instagram.com/5prostor/
-![5prostor-billboard](https://user-images.githubusercontent.com/79570985/140931507-4275bc6f-3e48-4790-8d84-2c297f6ea873.gif)
+![Photos of #5PROSTOR event](https://user-images.githubusercontent.com/79570985/140931507-4275bc6f-3e48-4790-8d84-2c297f6ea873.gif)
 
 
-
-![Cover2](https://user-images.githubusercontent.com/79570985/140936494-0f515a39-9d7c-4991-873b-a6113d9fea8b.png)
+![Goodbye heart](https://user-images.githubusercontent.com/79570985/140936494-0f515a39-9d7c-4991-873b-a6113d9fea8b.png)
 
 
 
