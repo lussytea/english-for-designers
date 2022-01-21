@@ -14,7 +14,7 @@ What is "my design story"? Well. It all started in the spring of 2018 with a pho
 
 Well. Back in the spring of 2018!
 
-*"Hey, I got your number by Alex (the guy with the dog). He said you write pretty well. Wouldn't you write us letters like Marx in one movie?”*
+*"Hey, I got your number by Alex (the guy with the dog). He said you write pretty well! Wouldn't you write us letters like Marx in one movie?”*
 
 ![My friend Alex with the dog and envelope written in manuscript imitating Karl Marx.](https://user-images.githubusercontent.com/79570985/150011112-f687962f-c09b-4688-9c3a-107c8aaecc72.jpg)
 
