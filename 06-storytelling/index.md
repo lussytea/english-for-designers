@@ -51,7 +51,8 @@ into the [life of Ludwig Van Beethoven](https://www.imdb.com/title/tt11496350/?r
 
 from which I teleported to [post-war Germany](https://www.imdb.com/title/tt11944132/?ref_=ttmi_tt).  
 
-![Demonstration of work from the project Unsere wunderbaren Jahren](https://user-images.githubusercontent.com/79570985/150484950-0600b8e8-0a48-4eab-9210-3fa8a09980ed.jpg)
+![Demonstration of work from the project Unsere wunderbaren Jahren](https://user-images.githubusercontent.com/79570985/150502260-60672ca3-8673-4d90-bdfd-3e245744b56e.jpg)
+
 
 Here I stayed a bit and knew the fate of the people at the famous Berlin hospital [Charité](https://www.imdb.com/title/tt5337806/?ref_=fn_al_tt_1), with whom we were sad witnesses of the construction of the Berlin Wall.
 
@@ -60,7 +61,6 @@ Here I stayed a bit and knew the fate of the people at the famous Berlin hospita
 Later on, I went back 570 years and ruled with [Margrete – Queen of the North](https://www.imdb.com/title/tt9308390/?ref_=fn_al_tt_1) the for a while. 
 
 ![Demonstration of work from the project Margrete – Queen of the North](https://user-images.githubusercontent.com/79570985/150485239-a9e5f3c3-9645-4dd5-9c51-5b85963ab22e.jpg)
-
 
 Then we flew with bloodthirsty [vampires on the plane](https://www.imdb.com/title/tt6402468/?ref_=fn_al_tt_1). Well, I preferred to stay with the old vampire in the basement and examine the anatomy and blood. 
 
@@ -71,6 +71,8 @@ Then the [late baroque and classicist composer Josef Mysliveček](https://www.im
 ![Demonstration of work from the project Il Boemo](https://user-images.githubusercontent.com/79570985/150485260-09aab2df-885e-40b9-b952-f5a48d153b09.jpg)
 
 But being the high society of the same time brings in a lot of money, parties, love stories and intrigue, we found out through another film story. 
+
+![Demonstration of work from the project Dangerous Laisons](https://user-images.githubusercontent.com/79570985/150502099-703e8f82-9eae-4fa2-8c0b-e1ff92b68e5a.jpg)
 
 I changed the richly decorated clothes for the skin of a Jewish painter, who goes crazy while hiding before taking back to a concentration camp. 
 
