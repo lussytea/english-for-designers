@@ -84,7 +84,7 @@ At the same time, I continued with the scenography of student films, commercials
 
 ![set-design](https://user-images.githubusercontent.com/79570985/150485391-46b04787-9b04-4240-a89d-f93c92a1ae0d.jpg)
 
-And I understood/ I learned 
+And I learned 
 
 by making props:
 - that every detail matters and tells a part of the story
@@ -93,9 +93,9 @@ by making props:
 and by designing sets:
 - that everything must make sense together to tell an understandable story. 
 
-Although I loved the job, I knew I want to create something new. Something I can see in real-time and real space. That I wish to see people interact with my designs.
-
 ![designs](https://user-images.githubusercontent.com/79570985/150485472-70bc2565-a930-4ba6-bd10-48e3a3d88f90.jpg)
+
+Although I loved the job, I knew I want to create something new. Something I can see in real-time and real space. That I wish to see people interact with my designs.
 
 So here I am! In the third year of graphic and media design.
 
@@ -103,7 +103,7 @@ And do you know what I realized? Do you remember I told you about making props a
 
 But we said *a logo, poster, social network post, business card, piece of merch, etc.* instead of *a prop* and *a brand* instead of *a set*.
 
-They teach us also always ask "Why?". And when the answer is "Because I like it", then it is not the right way. We need to always find the soul of the project/ the point of the project/ main motive of the project to create its image / its form. We need to always ask: Does it tell the story? 
+They teach us also always ask "Why?". And when the answer is "Because I like it", then it is not the right way. We need to always find the soul, the main motive, the point of the project, to create its form. We need to always ask: Does it tell our story? 
 
 Because that's what it's all about.
 
