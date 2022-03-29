@@ -40,17 +40,15 @@ As David Ogilvy said, "Brand is what you have left when your factory burns down.
 #social media #print #ooh 
 
 #culture #art #artgallery 
-- **#visual style, #visual identity**
-  - A unified visual style is one of the most important means of communication for any institution. It supports and complements its modern image,shows its stability, raises awareness of the existence, reflects its qualities. The basis of the unified visual style of the company consists of the following four elements: #logo, #typography, #color, #visual style.
+- **#visual style, #visual identity** / A unified visual style is one of the most important means of communication for any institution. It supports and complements its modern image,shows its stability, raises awareness of the existence, reflects its qualities. The basis of the unified visual style of the company consists of the following four elements: #logo, #typography, #color, #visual style.
 
 
-- **#brand**
-  - As David Ogilvy said, *"Brand is what you have left when your factory burns down."*
+- **#brand** / As David Ogilvy said, *"Brand is what you have left when your factory burns down."*
 
 - **#graphic design**
 - **#communication, #marketing**
 - **#culture #art #artgallery, #culture events**
-- **#social media #print #...
+- **#social media #print #...**
 
 ## Key Points
 
