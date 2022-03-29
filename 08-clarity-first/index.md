@@ -8,10 +8,7 @@
 - [Inspiration](#inspiration)
 - [Warm-Up](#warm-up)
 
-# Title (of thesis project)
-
-Anezka = Young National Gallery
-or The missing piece.
+# Anežka = Young National Gallery or *The missing piece*.
 
 ## Summary
 
