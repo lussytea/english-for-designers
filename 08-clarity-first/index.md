@@ -37,15 +37,15 @@ Creating a communication style of the potentially newly born art and cultural pl
 
 ## Key Points
 
-1. Background/importance of topic: 
+**1/ Background/importance of topic:** 
 
 The point zero is the fact, we got the space for a cafe in The Convent of St. Agnes in Prague, which is currently under the proper National Gallery. We are connected with curators and we plan to build a cafe with a special cultural substance. In my Bachelor thesis, I am creating a potential situation, where all these activities run under the official auspices of the National Gallery in Prague (NGP) and the unified name Anežka. 
 
-2. Purpose/hypothesis (thesis or statement of problem): 
+**2/ Purpose/hypothesis (thesis or statement of problem):** 
 
 Anežka speaks for the young artistic generation, whose voice the National Gallery lacks. In addition, the current market lacks state institutions of this type. 
 
-3. Research — design/methodology/approach including procedures/data/observations: 
+**3/ Research — design/methodology/approach including procedures/data/observations:** 
 
 The official communication concept of NGP, as introduced in 2018 by Aleš Najbrt, is called Space for Art. According to this philosophy, all communication, as with most other world-known galleries, is running. It creates a neutral environment, creating imaginary bare frames for art. The question I want to address in my work is: can institutions of this type use a unique linguistic and visual style in which it represents itself?
 
@@ -53,9 +53,9 @@ In the theoretical part, I will try to create an insight into the visual and lin
 
 In the practical part I will demonstrate the outputs with examples in the exterior, interior and digital world.
 
-4. Findings (highlight outcome of research):
+**4/ Findings (highlight outcome of research):**
 
-5. Conclusions (significance/success of study to theory/practical/society): 
+**5/ Conclusions (significance/success of study to theory/practical/society):**
 
 As mentioned, I hope in the creation a distinctive visual and linguistic style of this young cultural institution, who will speak in a fresh voice to the people and entice/ attract them to discover it.
 
