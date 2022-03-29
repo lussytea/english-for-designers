@@ -10,11 +10,12 @@
 
 # Title (of thesis project)
 
-<!-- Please limit the title to around **100–125 characters** or less (think — alt text). -->
+Anezka = Young National Gallery
+or The missing piece.
 
 ## Summary
 
-A brief description or summary of your thesis project in about **100 words** or less.
+Creating a communication style of the potentially newly born art and cultural platform Anežka. A concept of a young generation art scene under the auspices of the prestigious state National Gallery in Prague (NGP). The aim is to create a distinctive visual and linguistic style, which would represent it in the market among the competition. I will try to find a way to visually connect with NGP. At the same time, however, and above all, the way of sufficient differentiation of these two institutes. I would like people to know clearly that they are communicating with Anežka and entering her territory.
 
 <!-- Disclosure widget, HTML in Markdown -->
 
