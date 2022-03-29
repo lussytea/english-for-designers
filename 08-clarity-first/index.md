@@ -65,7 +65,7 @@ As mentioned, I hope in the creation a distinctive visual and linguistic style o
 
 <!-- Add reference list. See Reference List Style -->
 
-- (https://www.czechdesign.cz/case-studies/narodni-galerie-nasla-s-pomoci-czechdesign-novou-vizualni-identitu)
+- Národní galerie našla s pomocí CZECHDESIGN novou vizuální identitu: https://www.czechdesign.cz/case-studies/narodni-galerie-nasla-s-pomoci-czechdesign-novou-vizualni-identitu)
 - …
 - …
 
