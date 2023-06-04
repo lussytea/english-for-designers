@@ -6,6 +6,8 @@
 # LUCIE L. TYC
 ##### Graphic Designer | Prague | lucie.tyc@gmail.com | +420 739 281 172 | @lussy_tee 
 
+[Download CV (PDF)](pdf/Tycova-lucie-cv.pdf) <!-- At the top or bottom? -->
+
 ## Experience
 
 ### Freelance Graphic Designer		
