@@ -13,5 +13,6 @@ the National Gallery Prague, but at the same time the path of their mutual diffe
 is to bring to the cultural market a self-confident brand with a defined philosophy, created by
 character and a unique communication and visual style.
 
-*Keywords:* National Gallery Prague, art, culture, cultural institution, cultural marketing, visual
-identity, visual style, brand character
+### Keywords: 
+*National Gallery Prague, art, culture, cultural institution, cultural marketing, visual
+identity, visual style, brand character*
