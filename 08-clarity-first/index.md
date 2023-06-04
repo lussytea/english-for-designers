@@ -3,7 +3,7 @@
 - [Summary](#summary)
 - [Keywords](#keywords)
 - [Key Points](#key-points)
-- [References](#references)
+- [Links](#references)
 
 # Anežka = Young National Gallery or *The missing piece*.
 
@@ -58,10 +58,10 @@ As mentioned, I hope in the creation a distinctive visual and linguistic style o
 
 <!-- Key points; aim for **30–60 words** each. -->
 
-## References
+## Links
 
 <!-- Add reference list. See Reference List Style -->
 
-- [Something about NGP's visual identity refreshed in 2018](Národní galerie našla s pomocí CZECHDESIGN novou vizuální identitu: https://www.czechdesign.cz/case-studies/narodni-galerie-nasla-s-pomoci-czechdesign-novou-vizualni-identitu)
+- [Something about NGP's visual identity refreshed in 2018](https://www.czechdesign.cz/case-studies/narodni-galerie-nasla-s-pomoci-czechdesign-novou-vizualni-identitu)
 - [Anežka's Instagram](https://www.instagram.com/anezka_praha/)
 - [Anežka's wbesite](https://anezkapraha.cz/)
