@@ -1,4 +1,4 @@
-# Lucie L. Tycova
+# Lucie L. Tyc
 
 ## About Me
 
