@@ -1,1 +1,1 @@
-[Spy Anežka's first steps here!](thesis-presentation.pdf) <!-- At the top or bottom? -->
+[Spy Anežka's first steps here!](pdf/thesis-presentation.pdf) <!-- At the top or bottom? -->
