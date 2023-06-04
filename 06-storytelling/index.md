@@ -1,6 +1,8 @@
 # EVERYTHING TELLS A STORY
 
-by Lucie L. Tycova
+by Lucie L. Tyc
+
+[Check my website](pdf/telling a story.pdf)
 
 What is "my design story"? Well. It all started in the spring of 2018 with a phone call:
 
