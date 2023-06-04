@@ -1,12 +1,9 @@
 <!-- Table of Contents, in-page navigation -->
 
 - [Summary](#summary)
-- [Mind Map](#mind-map)
 - [Keywords](#keywords)
 - [Key Points](#key-points)
 - [References](#references)
-- [Inspiration](#inspiration)
-- [Warm-Up](#warm-up)
 
 # Anežka = Young National Gallery or *The missing piece*.
 
@@ -65,22 +62,6 @@ As mentioned, I hope in the creation a distinctive visual and linguistic style o
 
 <!-- Add reference list. See Reference List Style -->
 
-- Národní galerie našla s pomocí CZECHDESIGN novou vizuální identitu: https://www.czechdesign.cz/case-studies/narodni-galerie-nasla-s-pomoci-czechdesign-novou-vizualni-identitu)
-- …
-- …
-
-## Inspiration
-
-<!-- Optional section, see https://evajunkova.github.io/english-for-designers/08-clarity-first/#inspiration -->
-
-## Warm-Up
-
-In class exercise: Explore key points with the PAR method, then write a statement.
-
-1. Problem:
-2. Action:
-3. Result:
-
-<!-- Put it all together in a statement -->
-
-PAR statement:
+- [Something about NGP's visual identity refreshed in 2018](Národní galerie našla s pomocí CZECHDESIGN novou vizuální identitu: https://www.czechdesign.cz/case-studies/narodni-galerie-nasla-s-pomoci-czechdesign-novou-vizualni-identitu)
+- [Anežka's Instagram](https://www.instagram.com/anezka_praha/)
+- [Anežka's wbesite](https://anezkapraha.cz/)
