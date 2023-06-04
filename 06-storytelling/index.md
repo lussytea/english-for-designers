@@ -2,7 +2,7 @@
 
 by Lucie L. Tyc
 
-[Download PDF and *Click the story!*](pdf/telling-a-story.pdf)
+[Download PDF and *Click through the story!*](pdf/telling-a-story.pdf)
 
 What is "my design story"? Well. It all started in the spring of 2018 with a phone call:
 
