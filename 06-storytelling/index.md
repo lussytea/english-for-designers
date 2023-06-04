@@ -2,7 +2,7 @@
 
 by Lucie L. Tyc
 
-[Check my website]([pdf/telling a story.pdf](https://github.com/lussytea/english-for-designers/blob/main/06-storytelling/telling%20a%20story.pdf)
+[Download CV (PDF)](pdf/telling-a-story.pdf)
 
 What is "my design story"? Well. It all started in the spring of 2018 with a phone call:
 
