@@ -11,7 +11,15 @@ Nothing really doesn't come to mind. Maybe that three hours is sometimes too lon
 
 3) What were the top (three) things you learned this year?
 
+I need to repaeat a part of takeaways here: 
+
+1. I made steps to summarize me as a brand. I finally wrote my CV and do a portfolio! I am not standing „in front of empty canvas“, which is everytime the hardest part.
+2. I find out the importance of good writting. It is not only about designing!
+3. I know more voice, tone & style. 
+
 4) What was the most memorable activity/assignment?
+
+
 
 5) What’s something you accomplished this year that you are most proud of?
 
