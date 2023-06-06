@@ -11,24 +11,38 @@ Nothing really doesn't come to mind. Maybe that three hours is sometimes too lon
 
 3) What were the top (three) things you learned this year?
 
-I need to repaeat a part of takeaways here: 
+I need to repaeat a part of my takeaways here: 
 
-1. I made steps to summarize me as a brand. I finally wrote my CV and do a portfolio! I am not standing „in front of empty canvas“, which is everytime the hardest part.
-2. I find out the importance of good writting. It is not only about designing!
-3. I know more voice, tone & style. 
+* I made steps to summarize me as a brand. I finally wrote my CV and do a portfolio! I am not standing „in front of empty canvas“, which is everytime the hardest part.
+* I find out the importance of good writting. It is not only about designing!
+* I know more voice, tone, style & GitHub (uffff :D)! 
 
 4) What was the most memorable activity/assignment?
 
-
+There were planty (following on the above-mentioned stuff). BUT one thing stuck in my mind... the video, where someone arrange things on the table and make collages. It was sooo satisfying..:D
 
 5) What’s something you accomplished this year that you are most proud of?
 
+Haha, everything on my GitHub homepage...including GitHub :D<3
+
 6) What’s one thing you learned about yourself?
+
+That the important thing is to start! :)
 
 7) What’s one thing you could have done better?
 
+Getting things done on time and before deadlines ... 
+
 8) What’s one thing I could have done better?
+
+I acctually really don't know ...:D I felt lesssons well balanced :) 
 
 9) What’s one thing you would add or change about this course?
 
+The same like in previous question... Nothing comes to my mind now..
+
 10) What advice would you give to students taking this course next year?
+
+Attend lessons and took advantage of all the benefits of the assigned tasks! :)
+
+Thank you Justin <3 
