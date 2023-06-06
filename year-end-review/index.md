@@ -2,10 +2,12 @@
 
 1) What did you like most about this course?
 
-Mmm you know, for me were english classes always little bit annoying... But these classes were connected with the actual stuff I do, and it was f *cking great!! <3 It pushed me to do things I wanted to do long time, and...on top of that.. in English! 
-Moreover, I wasn't just learning english, but also many more new, important and interisting things in the filed...thanks!)
+Mmm you know, for me were english classes always little bit annoying... But these classes were connected with the actual stuff I do, and it was f*cking great!! <3 It pushed me to do things I wanted to do long time, and...on top of that.. in English! 
+Moreover, I wasn't just learning english, but also many more new, important and interisting things in the field and use very soon (practically immediately). ..thanks!) 
 
 2) What did you like least about this course?
+
+Nothing really doesn't come to mind. Maybe that three hours is sometimes too long. But sometimes not, its difficult to say..)
 
 3) What were the top (three) things you learned this year?
 
